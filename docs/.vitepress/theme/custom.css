@@ -1,0 +1,15 @@
+.img-group {
+    display: block;
+}
+.img-group img {
+    display: inline;
+}
+
+.underline {
+    text-decoration: underline;
+}
+
+.important {
+    font-size: larger;
+    font-weight: bold;
+}
