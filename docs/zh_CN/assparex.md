@@ -1,8 +1,6 @@
 # 辅助拉伸练习的例子
 
-Below are a few examples of assisted partner stretches. As you can see
-assisted stretches can be varied in numerous ways and you can use your
-imagination as much as you wish to achieve the positions.
+以下是一些辅助拉伸的示例。正如你可以看到的，辅助拉伸可以以多种方式变化，你可以根据自己的想象力进行调整，以达到所需的姿势。
 
 <div class="img-group">
 

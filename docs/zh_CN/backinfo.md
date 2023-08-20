@@ -1,51 +1,22 @@
 # 关于后背和后弯的二三事
 
-Since you've decided on starting practicing yoga contortion a lesson
-about backbends would be in it's place. I know that you will be most
-interested in this subject because it is the one part of your body that
-you might see as a bit of a mystery.
+既然你决定开始练习瑜伽柔术，关于后弯的课程将是合适的。我知道你对这个主题最感兴趣，因为这是你身体的一部分，你可能将其视为一个谜团。
 
-I'll start with what I have seen and some comments on that, then move
-to training methods and finally the sort of exercises you can expect to
-be given to get your back very supple.
+我将从我所见到的现象开始，对此发表一些评论，然后转向训练方法，最后介绍一些你可以期待的锻炼，以使你的背部非常柔软。
 
-The best way to explain all this is to make use of photos of actual
-people.
+解释这一切的最好方法是借用真实人物的图片。
 
-**Picture A**
+**图 A**
 ![](/images/Image346.jpg){width="141" height="200"}
-The girl has a bendy back is what you will say. Correct. Look closely,
-however, and you will find that the back is bent over a large number of
-vertebrae. The bend even continues to the vertebrae behind the rib cage
-and the front of the body has a very smooth curve. A number of vertebrae
-have each moved a small angle to give this smooth curve to the back and
-this looks elegant (in my view). This bend resulted from the girl
-grasping her knees with feet relatively close together and tilting the
-head back to look at the floor and pulling the head in to be against the
-seat/thighs.
+这个女孩的腰相当柔软。没错。然而，仔细观察，你会发现这个弯曲覆盖了许多椎骨。这个弯曲甚至延伸到了肋骨后面的椎骨，而且身体的前面呈现出非常平滑的曲线。一些椎骨每个都移动了一个小角度，使得背部呈现出这种平滑的曲线，这看起来非常优雅（在我看来）。这种弯曲是通过女孩用双脚相对靠近地抓住膝盖，将头仰后看向地板，然后将头拉向臀部/大腿，使头部靠近了臀部/大腿，从而形成的。
 
-**Picture B**
+**图 B**
 ![](/images/Image347.jpg){width="159" height="200"}
-Here is a significantly different feature from A. Notice that the back
-no longer has a good curve to it. The bend is taken by a few vertebrae
-in the lower back region. The upper back behind the rib cage is almost
-straight. There is a reason. She has bent back to get her hands to the
-floor. She has not pulled her head in to her thighs but has reached
-downwards. She could have pivoted more at the hips, but has simply
-allowed a small number of her back vertebrae to bend much more. The way
-she went about the pose kept the upper back straight.
+这是与 A 显著不同的一个姿势。请注意，背部不再具有良好的曲线。弯曲是由下背部区域的几个椎骨完成的。肋骨后面的上背部几乎是笔直的。有一个原因。她弯曲了背部以使双手触及地板。她没有将头部拉到大腿上，而是向下伸展。她本可以更多地在臀部处旋转，但她只是允许她的一小部分背椎骨弯曲得更多。她采取的姿势方式保持了上背部（胸腰）的笔直。
 
-**Picture C**
+**图 C**
 ![](/images/Image348.jpg){width="168" height="200"}
-Here is a classic demonstration of a close bend. It is a tighter bend at
-a few vertebrae in the lower back area than B but the upper back is
-straight and the rib cage has no bend at all. This pose would have
-started out in the same way as B but she wanted her head through her
-thighs. She has hold of the legs at the knees and has pulled in from
-picture B position. Notice that her hips have pivoted more. As well, the
-few vertebrae taking the bend have had to get a greater angular movement
-than in picture B. It is not possible to get a tighter bend because her
-seat is hard against her back.
+这是一个典型的近距离弯曲示范。与 B 相比，这是在下背部区域的几个椎骨处更紧密的弯曲，但上背部是笔直的，肋骨完全没有弯曲。这个姿势的起始方式与B相同，但她想要将头穿过大腿。她抓住膝盖处的腿，并从图 B 的位置拉进来。注意她的臀部已经更多地旋转。此外，承受弯曲的几个椎骨必须具有比图 B 中更大的角度运动。由于她的臀部紧贴着背部，所以不可能获得更紧密的弯曲。
 
 The flexible back has a great capacity to bend at various vertebrae. It
 is obvious that the easiest part to bend is the lower back because there
@@ -62,7 +33,7 @@ can see in B, a good deal of muscle control is required.
 Of course, on the chest or elbows the back simply bends where it wants
 to be comfortable. I will explain why I make that statement.
 
-**Picture D**
+**图 D**
 ![](/images/Image349.jpg){width="251" height="200"}
 Here the contortionist has her chest on the floor and has dragged her
 feet in to the shoulders. The more of her body that is on the floor, the
@@ -71,7 +42,7 @@ provided the considerable angular movement to achieve the pose. There is
 no balance requited as in a standing pose so the back relaxes into where
 it is most comfortable.
 
-**Picture E**
+**图 E**
 ![](/images/Image350.jpg){width="302" height="200"}
 Picture E has some similarity but here we see a layover and this is
 interesting. The contortionist is on the table and her weight is taken
@@ -83,7 +54,7 @@ legs to pull the seat towards the floor! So her back has simply taken up
 the bend at the most comfortable part of the back by providing angular
 movement of a few, but different, vertebrae.
 
-**Picture F**
+**图 F**
 ![](/images/Image351.jpg){width="247" height="200"}
 Picture F shows a contortionist with an interesting bend. There is
 angular movement low down the back but she also has movement of the
@@ -102,20 +73,20 @@ where quite large angular movement between vertebrae can be achieved.
 
 **A standing back bend showing progression in 6 pictures.**
 
-**Picture G**
+**图 G**
 ![](/images/Image352.jpg){width="216" height="200"}
 In picture G the contortionist has pivoted forward at the hips. As she
 is doing this she arches the back. This keeps her weight over the feet
 which are providing balance.
 
-**Picture H**
+**图 H**
 ![](/images/Image353.jpg){width="214" height="200"}
 At picture H she has allowed the lower back to take all the bending
 movement as she continues the bend and she has controlled her upper back
 which is straight. To retain balance she has swayed forward with her
 hips.
 
-**Picture I**
+**图 I**
 ![](/images/Image354.jpg){width="271" height="200"}
 Picture I shows the upper body still straight and this is due to her
 control. The lower vertebrae continue to absorb the bend by increasing
@@ -125,13 +96,13 @@ of angle over a very few vertebrae. The back is an amazing part of your
 body structure to be able to do this \\96 but it does it as you bend
 your fingers in extreme ways! Now, on with the next three pictures.
 
-**Picture J**
+**图 J**
 ![](/images/Image355.jpg){width="265" height="200"}
 Continuing with the bend she now pivots at the hips as shown in picture
 J and brings the head down to behind the thighs. Notice that her legs
 are more erect because the body weight has closed up towards the legs.
 
-**Picture K**
+**图 K**
 ![](/images/Image356.jpg){width="191" height="200"}
 As is often the case with a back bend picture K shows her grasping one
 leg just above the knee without increasing the bend that was there at
@@ -139,7 +110,7 @@ picture J. Having grasped one leg she has a stable base and can now
 grasp the other leg and then pull her body in to the final position at
 Picture L.
 
-**Picture L**
+**图 L**
 ![](/images/Image357.jpg){width="220" height="200"}
 Things to note about picture L are that her head is well down the thighs
 with the shoulders about mid way between seat and knee. That means the
@@ -155,19 +126,19 @@ the thighs. You'll be able to do this in time if you practice!
 
 Now a few different positions with comments!
 
-**Picture M**
+**图 M**
 ![](/images/Image358.jpg){width="176" height="200"}
 Picture M shows the head well up and the position of the shoulders
 against the legs is only just below the seat. The vertebrae taking the
 bend angle are relatively high in her back.
 
-**Picture N**
+**图 N**
 ![](/images/Image359.jpg){width="169" height="200"}
 Picture N is really impressive as well. The contortionist has her bend
 at the vertebrae in the lowest part of her back. Lower than picture M.
 Her shoulders are definitely lower down the leg than M.
 
-**Picture O**
+**图 O**
 ![](/images/Image360.jpg){width="183" height="200"}
 Picture O is interesting. Firstly the girl has a thick ribcage and while
 there is a bit of rib showing the girl is not too thin. But she has very
@@ -193,7 +164,7 @@ possible.
 
 Now for another back bend. This time a different entry style.
 
-**Picture A**
+**图 A**
 ![](/images/Image361.jpg){width="203" height="200"}
 For her entry into the back bend (Picture A) the girl has pivoted
 forward at the hips. This is always a good start to retain balance. At
@@ -204,7 +175,7 @@ angular movement at the lower back. The head is tilted well back until
 the back of the head comes up against the seat. This is a locked
 position where there is stability.
 
-**Picture B**
+**图 B**
 ![](/images/Image362.jpg){width="167" height="200"}
 From this position the hip pivot is lessened progressively (Picture B)
 but the back kept arched. As the pivot is reduced the head slowly slides
@@ -213,25 +184,25 @@ bend in the back is kept as tight as possible and with this movement
 different vertebrae change their angular movement as the bend
 progresses.
 
-**Picture C**
+**图 C**
 ![](/images/Image363.jpg){width="143" height="200"}
 Picture C compared to A & B will show this action.
 
-**Picture D**
+**图 D**
 ![](/images/Image364.jpg){width="186" height="200"}
 The legs are now grasped at the knee as Picture D to give a steady base
 and pivot action at the hips bring the shoulders down well below the
 seat. The arms are then used to pull the bend in until the shoulders
 contact the back of the legs and the seat is against the back.
 
-**Picture E1**
+**图 E1**
 ![](/images/Image365.jpg){width="195" height="200"}
 If the feet were reasonably apart for this bend then the head will be
 through the thighs as at Picture E. In this position there is a
 reasonable amount of pull force on the arms and hands and another option
 may be preferred as follows.
 
-**Picture F1**
+**图 F1**
 ![](/images/Image366.jpg){width="149" height="200"}
 If the feet were nearer together for the bend, from Picture D position
 and the subsequent hip pivot took place the arms may be clasped in front
@@ -239,13 +210,13 @@ of the knees and the head is against the back of the knees as picture F.
 Once the hands are clasped there is no pull on the arms. (But there is
 more to come!!).
 
-**Picture E2**
+**图 E2**
 ![](/images/Image367.jpg){width="185" height="200"}
 This is an alternative continuation from Picture D. From the D Picture
 position the hip pivot takes place and one leg only is grasped at the
 knee. See Picture E2.
 
-**Picture E3**
+**图 E3**
 ![](/images/Image368.jpg){width="171" height="200"}
 Holding the one leg, the pull in brings the head outside the leg and the
 lower back vertebrae now have an angular movement to the side as well as
@@ -254,7 +225,7 @@ holding that position, the inside hand transfers to the other leg. The
 head is now taken from outside one leg across the back and pulled to
 outside the other leg.
 
-**Picture F**
+**图 F**
 ![](/images/Image369.jpg){width="176" height="200"}
 Following that, the head is returned to center as previous picture E1 or
 F1. This is very interesting in that the girl has pivoted at the hips to
@@ -287,30 +258,30 @@ opinion). I will show the effect.
 
 ## Bad Training Technique
 
-**Picture G1**
+**图 G1**
 ![](/images/Image370.jpg){width="185" height="200"}
 This would be an often taught way of entering a back bend. First, to a
 bridge as Picture G1;
 
-**Picture G2**
+**图 G2**
 ![](/images/Image371.jpg){width="162" height="200"}
 then walk the hands to the feet as picture G2;
 
-**Picture G3**
+**图 G3**
 ![](/images/Image372.jpg){width="142" height="200"}
 then grasp the ankles as picture G3. All very difficult and every part
 of the way there is strain. The coach expects the girl to increase her
 back flexibility by tightening the bend from this position. This is a
 big ask.
 
-**Picture G3a**
+**图 G3a**
 ![](/images/Image373.jpg){width="140" height="200"}
 Then what comes next? The girl has a fragile hold on her ankles and
 little stability and not great back flexibility as picture G3a. To try
 to increase flexibility the coach sets the task of getting the hands up
 to the knees so that the bend will become tighter.
 
-**Picture G4**
+**图 G4**
 ![](/images/Image374.jpg){width="151" height="200"}
 The poor girl has to work the hands up the legs using finger action one
 hand at a time as picture G4 and all the time with bent knees because
@@ -321,7 +292,7 @@ stay balanced. Now imagine that you were in a back bend with knees bent.
 A totally unbalanced position with a tense body. So, the inevitable
 happens. She falls over, injures herself or...
 
-**Picture G5**
+**图 G5**
 ![](/images/Image375.jpg){width="203" height="200"}
 Because of lack of progress (which is understandable) the coach
 determines that he will help out the student by grasping her body and
@@ -335,7 +306,7 @@ later.
 
 The totally assisted method of teaching a back bend!
 
-**Picture H1 Picture H2 Picture H3**
+**图 H1 Picture H2 Picture H3**
 
 <div class="img-group">
 

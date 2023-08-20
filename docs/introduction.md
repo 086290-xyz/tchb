@@ -733,7 +733,7 @@ If you can or have time try to do more exercises in the same order. If
 possible always have someone to assist you in the stretches. If you can
 make as many exercises using [the contortion barre](./contortion_barre) as possible.
 
-## Semi advanced level schedule
+### Semi advanced level schedule
 
 1. [Frontbend exrecise](./frontbends)
 1. [Back bend flexing exercise](./backbends)
@@ -771,7 +771,7 @@ If you can or have time try to do more exercises in the same order. If
 possible always have someone to assist you in the stretches. If you can
 make as many exercises using [the contortion barre](./contortion_barre) as possible.
 
-## Advanced level schedule
+### Advanced level schedule
 
 All advanced exercises should be done with perfection without anyone
 assisting you! In the last exercise have someone to assist you to get
