@@ -104,116 +104,65 @@
 
 **图 E1**
 ![](/images/Image365.jpg){width="195" height="200"}
-If the feet were reasonably apart for this bend then the head will be
-through the thighs as at Picture E. In this position there is a
-reasonable amount of pull force on the arms and hands and another option
-may be preferred as follows.
+如果双脚相对分开的话，头部将会像图 E1 中所示一样穿过大腿。在这个姿势中，手臂和手上会有相当大的拉力，还有另一种选项可能更受欢迎，如下所述。
 
 **图 F1**
 ![](/images/Image366.jpg){width="149" height="200"}
-If the feet were nearer together for the bend, from Picture D position
-and the subsequent hip pivot took place the arms may be clasped in front
-of the knees and the head is against the back of the knees as picture F.
-Once the hands are clasped there is no pull on the arms. (But there is
-more to come!!).
+如果双脚在弯曲时更近，从图片D的位置开始进行髋部的旋转，双臂可以交叉在膝盖前，头部则紧贴在膝盖后面，就像图片F中所示。一旦双手交叉在一起，就不会对手臂产生拉力。（但还有更多要说的！！）。
 
 **图 E2**
 ![](/images/Image367.jpg){width="185" height="200"}
-This is an alternative continuation from Picture D. From the D Picture
-position the hip pivot takes place and one leg only is grasped at the
-knee. See Picture E2.
+这是从图 D 的另一种后继姿态。从图 D 的位置开始进行髋部的旋转，然后只抓住一条腿的膝盖。参见图 E2。
 
 **图 E3**
 ![](/images/Image368.jpg){width="171" height="200"}
-Holding the one leg, the pull in brings the head outside the leg and the
-lower back vertebrae now have an angular movement to the side as well as
-to the rear as the head takes position as Picture E3. After a pause
-holding that position, the inside hand transfers to the other leg. The
-head is now taken from outside one leg across the back and pulled to
-outside the other leg.
+握住一条腿，将头部从腿的外侧拉出，下背椎骨现在具有向侧面和向后移动的角度，因为头部的位置如图 E3 所示。在保持该位置片刻后，内侧的手移动到另一条腿。现在，将头部从一条腿的外侧移到背后，然后拉到另一条腿的外侧。
 
 **图 F**
 ![](/images/Image369.jpg){width="176" height="200"}
-Following that, the head is returned to center as previous picture E1 or
-F1. This is very interesting in that the girl has pivoted at the hips to
-an amazing extent and her head is between her knees. The back bend is
-good but it is the hip socket movement that is impressive.
+接着，头部会回到之前图 E1 或 F1 的中心位置。这非常有趣，因为女孩已经在髋部旋转到了令人惊讶的程度，她的头部位于膝盖之间。后弯是不错的，但令人印象深刻的是髋关节的角度。
 
-## Standing back bends
+## 站立后弯
 
-The standing back bend is not an easy pose to get yourself into. The
-problem with it is that you are standing and then instead of forward
-bending which is natural you must reverse the bend. For forward bends
-the shape of the foot provides good leverage to maintain balance. The
-leg goes down to the foot and then the toes are some distance ahead of
-the leg pivot point. Any tendency to overbalance is corrected by
-pressure on the toes.
+站立后弯不是一个容易进入的姿势。它的问题在于你是站立着，然后不是像前折那样自然地弯曲，而是必须反向弯曲。对于前折，脚的形状提供了很好的杠杆作用来保持平衡。腿弯曲至脚部，然后脚趾距离腿的旋转点有一段距离。任何过度倾斜的倾向都可以通过对脚趾的压力来纠正。
 
-During a backbend the tendency to go off balance cannot be corrected
-easily because the toes point the wrong way. As you commence a standing
-back bend you must, therefore, make sure that the body is maintaining
-pressure on the toes by slight overbalance forward. This is the reason
-for pivot forward of the hips at the initial stage of the bend. It is
-fair to comment that the brain senses the need for forward balance and
-tends to tense up muscles in case of problems with this un-natural
-action.
+在进行后仰时，倾向于失去平衡的情况不能轻松纠正，因为脚趾指向了错误的方向。因此，在开始站立后仰时，必须确保身体通过轻微的前倾来保持对脚趾的压力。这就是在弯曲的初始阶段髋部向前旋转的原因。公平地说，大脑会感知到需要前倾的平衡，并在这种不自然的动作出现问题时倾向于紧张肌肉。
 
-It is for that reason that I never attempt to teach a standing backbend
-until the trainee has an exceptionally supple and therefore confident
-back bend. I know that others teach back bends far too early (in my
-opinion). I will show the effect.
+正因为如此，我从不尝试在练习者的后弯非常柔韧、因此充满信心时教授站立后仰。我知道其他人会过早地教授后弯（依我之见）。我将展示这种影响。
 
-## Bad Training Technique
+### 错误的训练方法
 
 **图 G1**
 ![](/images/Image370.jpg){width="185" height="200"}
-This would be an often taught way of entering a back bend. First, to a
-bridge as Picture G1;
+这通常是一种教授进入后弯的方法。首先，做成如图 G1 所示的后桥；
 
 **图 G2**
 ![](/images/Image371.jpg){width="162" height="200"}
-then walk the hands to the feet as picture G2;
+然后将双手移动到脚旁，如图 G2 所示；
 
 **图 G3**
 ![](/images/Image372.jpg){width="142" height="200"}
-then grasp the ankles as picture G3. All very difficult and every part
-of the way there is strain. The coach expects the girl to increase her
-back flexibility by tightening the bend from this position. This is a
-big ask.
+接着抓住脚踝，如图 G3 所示。每一步都非常困难，每个环节都有紧张感。教练希望女孩通过从这个姿势中加强弯曲来增加她的后背柔韧性。这里有一个很大的问题。
 
 **图 G3a**
 ![](/images/Image373.jpg){width="140" height="200"}
-Then what comes next? The girl has a fragile hold on her ankles and
-little stability and not great back flexibility as picture G3a. To try
-to increase flexibility the coach sets the task of getting the hands up
-to the knees so that the bend will become tighter.
+然后接下来是什么？女孩在脚踝上保持着脆弱的抓握，稳定性不强，后背柔韧性也不大，如图 G3a 所示。为了试图增加柔韧性，教练设定了一个任务，要求将双手移到膝盖上，以使弯曲变得更紧。
 
 **图 G4**
 ![](/images/Image374.jpg){width="151" height="200"}
-The poor girl has to work the hands up the legs using finger action one
-hand at a time as picture G4 and all the time with bent knees because
-her back is not that flexible.
+可怜的女孩不得不使用手指的动作，一次只用一只手，将双手沿着腿部往上移动，如图片G4所示，而且始终保持膝盖弯曲，因为她的后背柔韧性不是很好。
 
-Try standing with the knees bent and see how much work you must do to
-stay balanced. Now imagine that you were in a back bend with knees bent.
-A totally unbalanced position with a tense body. So, the inevitable
-happens. She falls over, injures herself or...
+试着站立时弯曲膝盖，看看你必须做多少工作来保持平衡。现在想象一下，你处于膝盖弯曲的后弯姿势中。这是一个完全不平衡的姿势，伴随着身体的紧张。所以，不可避免的情况发生了。她会摔倒，受伤或者...
 
 **图 G5**
 ![](/images/Image375.jpg){width="203" height="200"}
-Because of lack of progress (which is understandable) the coach
-determines that he will help out the student by grasping her body and
-holding pressure on her back. The girl now has the legs more straight
-because coach is taking a lot of the weight. The girl can relax because
-coach is holding her and will not let her fall so she can work her hands
-higher up the legs as picture G5.
+由于进展不够（这是可以理解的），教练决定通过抓住她的身体并在她的后背施加压力来帮助学生。现在，女孩的腿更加伸直，因为教练承担了很大一部分重量。女孩可以放松，因为教练在支撑她，不会让她摔倒，所以她可以将双手往上移动，如图 G5 所示。
 
-I do not think this style is any good at all and will tell you my method
-later.
+我认为这种方法一点都不好，稍后我会告诉你我的方法。
 
-The totally assisted method of teaching a back bend!
+完整的后弯辅助教学方法！
 
-**图 H1 Picture H2 Picture H3**
+**图 H1 图 H2 图 H3**
 
 <div class="img-group">
 
@@ -223,359 +172,220 @@ The totally assisted method of teaching a back bend!
 
 </div>
 
-This is an actual series of pictures (H1 through H3) of one method a
-coach uses to get the trainee contortionist into a back bend. The girl
-does a loose bridge and is forced into the positions. When she is pulled
-into the position the coach wants the girl is told to hold position and
-is let go, something that the assistant never should do.
+这是教练使用的一种方法，通过一系列实际的图片（从 H1 到 H3）来让练习的柔术演员做出后弯。女孩做了一个松弛的桥式，被迫进入各个姿势。当她被拉入教练想要的位置时，女孩被告知要保持这个姿势，然后放手任其自由控制，这是助手绝不应该做的事情。
 
-In my opinion this is a training method that does not produce confidence
-and is totally incorrect. To me it is vitally important that the
-contortionist trainee gets there in a much more friendly manner and I
-will tell you all about what I shall get you to do to achieve much
-better and quicker results. Not earlier than then the assisted
-stretching should commence.
+在我看来，这种训练方法不会培养出自信，而且完全是错误的。对我来说，非常重要的一点是，柔韧性练习者应该通过更友好的方式达到目标，我将告诉你所有我将让你做的事情，以实现更好更快的效果。辅助拉伸应该在这之后才开始。
 
-The back is a complex part of the body. But, not only is it complex, it
-has an amazing ability to bend. This is achieved by angular change
-between adjacent vertebrae. That angle change can be in any direction
-and can be considerable. It is the muscles in the back that control any
-angular change in vertebrae.
+背部是身体复杂的一部分。然而，不仅仅是复杂，它还有令人惊讶的弯曲能力。这是通过相邻椎骨之间的角度变化实现的。这种角度变化可以朝任何方向，而且可以相当大。背部的肌肉控制着椎骨的任何角度变化。
 
-## Our training methods.
+### 我们的训练方法
 
-For us it is important to have the trainee in positions where there is
-minimum strain and this will always be in a comfortable position where
-there is a minimum balance requirement. As confidence grows and
-flexibility improves more complex positions will be within the capacity
-of the student. It is important to stay away from difficult balance
-positions at the early stages.
+对我们来说，让练习者保持在最小的紧张状态下很重要，而这通常是在一个舒适的姿势中，需要最小的平衡要求。随着信心的增长和柔韧性的提高，更复杂的姿势将在学生的能力范围内。在早期阶段避免艰难的平衡姿势是很重要的。
 
-### Initial back bending training
+#### 早期后折练习
 
-There are two individually different starting positions and they may be
-used alone or used in combination. Some trainees can more easily do one
-of the start positions than the other and in this case it is far better
-to simply do the easy one for a time until confidence has grown and the
-other position introduced. The two starting positions are:
+有两个个别不同的起始姿势，它们可以单独使用，也可以组合使用。有些练习者可能更容易做其中一个起始姿势，而在这种情况下，最好在一段时间内只做容易的那个，直到信心增强，然后再引入另一个姿势。这两个起始姿势分别是：
 
-- On the floor lying on the side
-- On the floor lying on the tummy
+- 侧躺在地上
+- 俯卧在地上
 
-In both of these positions there is no balance required and since both
-are on the floor the student has no fears about falling over. They can
-also be carried out assisted.
+在这两个姿势中，都不需要平衡，而且由于两者都在地板上，学生不会担心摔倒。它们也可以在辅助下完成。
 
-### Exercise lying on the side
+##### 侧躺姿势下的练习
 
-This exercise could not be simpler. The student is on the floor on her
-side and does the exercise positions that follow.
+这个练习非常简单。学生躺在地板上，侧卧，并完成接下来的练习姿势。
 
-**Position LBB1**
+**姿势 LBB1**
 ![](/images/Image379.jpg){width="239" height="150"}
-Position LBB1 is the start position and the student is in a comfortable
-position on the floor with legs spread for stability. One foot is
-grasped and pulled to tighten the bend.
+姿势 LBB1 是起始姿势，学生在地板上处于一个舒适的姿势，双腿分开以增加稳定性。一只脚被抓住并拉紧，以加强弯曲。
 
-**Position LBB2**
+**姿势 LBB2**
 ![](/images/Image380.jpg){width="241" height="156"}
-As the back gets more flexible the foot can be pulled over the shoulder
-(LBB2) and as this occurs the face slides along the outside of the leg.
-Repeats are done and leg pulls are done with each leg. Once the leg
-passes the shoulder it is time to introduce a minor change in the
-exercise because the back is getting more supple and this needs to be
-exploited.
+随着背部变得更加柔韧，脚可以拉过肩膀（LBB2），当这发生时，脸沿着腿的外侧滑动。重复进行这些动作，每只腿都要进行拉伸。一旦腿触及肩膀，就是引入练习中的一个微小变化的时候，因为背部变得更加柔软，需要充分利用这一点。
 
-Positon LBB3
+**Positon LBB3**
 ![](/images/Image381.jpg){width="230" height="184"}
-LBB3 is the third stage of this exercise and the contortion trainee
-grasps both feet at the same time and pulls both feet down over the
-shoulders. Once she can get both feet to her shoulders there is little
-value in continuing this exercise.
+LBB3 是这个练习的第三阶段，柔韧性练习者同时抓住双脚，将双脚拉下过肩膀。一旦她能够将双脚移到肩膀上，继续进行这个练习就没有太多价值了。
 
-On the floor lying on the tummy.
+##### 俯卧姿势下的练习
 
-Again, this exercise could not be simpler. The student is on the floor
-on her tummy and does the exercise positions that follow.
+同样地，这个练习非常简单。学生趴在地板上，完成接下来的练习姿势。
 
-Posiotion TBB1
+**姿势 TBB1**
 ![](/images/Image382.jpg){width="212" height="84"}
-Position TBB1 is the start and the student arches the back, assisted by
-the hands pushing.
+TBB1 是起始姿势，学生弯曲背部，双手辅助推动。
 
-**Position TBB2**
+**姿势 TBB2**
 ![](/images/Image383.jpg){width="180" height="86"}
-The feet are raised as TBB2 and the student tries to get the feet to the
-shoulders.
+像 TBB2 那样抬起脚，学生试图将脚移到肩膀上。
 
-**Position TBB3**
+**姿势 TBB3**
 ![](/images/Image384.jpg){width="150" height="84"}
-When this is achieved she can progress to TBB3 where she will be able to
-grasp each foot (one at a time) and pull it. Eventually the back will
-become more supple and the student will get the foot over the shoulder
-at which time a new exercise providing a challenge needs to be given.
+当达到这个目标后，她可以进入TBB3阶段，她将能够分别抓住每只脚，并将其拉向肩膀。最终，背部会变得更加柔软，学生会将脚抬过肩膀，此时需要给予一个新的、具有挑战性的练习。
 
-Once the student is able to easily get each foot over her shoulder doing
-either the side back bend (SBB series) or the tummy back bend (TBB
-series) it is time to change and provide a greater challenge. SBB and
-TBB may be given at the same time to provide variation.
+一旦学生能够轻松地在侧躺式（SBB 系列）还是俯卧式（TBB 系列）下都能每只脚抬过肩膀，就是时候进行改变，提供更大的挑战了。可以同时进行 SBB 和 TBB，以提供不同的变式。
 
-### Intermediate back bend training
+#### 中级后折练习
 
-To start on this training the student must be able to do SBB and TBB and
-get both feet to the shoulders at the same time. The heels of the feet
-must actually be in front of the shoulders or the next exercises will be
-rather difficult. This intermediate training comprises two different
-exercises:
+要开始这个训练，学生必须能够进行 SBB 和 TBB，并同时将双脚抬到肩膀上。双脚的脚跟实际上必须在肩膀前面，否则下一个练习会相当困难。这个中级训练包括两个不同的练习：
 
-- Kneeling on the floor with a backbend
-- On the tummy with backbend
+- 跪下腰
+- 俯卧后弯
 
-Kneeling on the floor and back bend. Being a kneeling pose any backbend
-will cause no overbalance difficulty so the student will be quite
-confident and, therefore, relaxed about the position. The vertebrae will
-be achieving big angular change during this exercise.
+#### 跪下腰
 
-**Position KBB1**
+由于是跪姿，任何背弯都不会造成失去平衡的困难，因此学生会对这个姿势感到相当自信，从而能够放松地进行练习。在这个练习过程中，椎骨会产生大的角度变化。
+
+**姿势 KBB1**
 ![](/images/Image385.jpg){width="237" height="200"}
-At position KBB1 the student kneels, legs apart and backbends to grasp
-the feet. At that point there is total stability so the student can
-relax in confidence.
+在 KBB1 的姿势中，学生跪下，双腿分开，然后进行背弯以抓住双脚。在这一点上，有完全的稳定性，因此学生可以自信地放松下来。
 
-**Position KBB2**
+**姿势 KBB2**
 ![](/images/Image386.jpg){width="230" height="200"}
-The exercise is to move the head towards "between the thighs" and as
-flexibility is improved the student will be able to get the hands to the
-ankles as at position KBB2.
+这个练习旨在逐渐增加柔韧性，改善学生将头部移向“双腿之间”的能力。随着柔韧性的提高，学生将努力达到 KBB2 的姿势，即能够将双手伸向脚踝。
 
-**Position KBB3**
+**姿势 KBB3**
 ![](/images/Image387.jpg){width="209" height="200"}
-With more and more exercising the student will be able to relax while
-doing this bend because there is no balance required and the base is
-extremely stable. As practice in this exercise is gained, the vertebrae
-will achieve greater angular deflection and the bend will tighten
-significantly. This will allow the student to move the hands further and
-further along the legs towards the knees as KBB3. In time the hands will
-be able to grasp in front of the knees.
+随着越来越多的锻炼，学生在进行这种后弯时将能够放松——因为不需要保持平衡，基座非常稳定。通过练习这种运动，脊椎将能够实现更大的角度偏转，并且弯曲将显著加紧。这将使学生能够将双手移动到越来越靠近膝盖的位置，如 KBB3 所示。随着时间的推移，双手将能够抓住膝盖前方。
 
-### On the tummy with backbend
+#### 俯卧后弯
 
-This is a continuation of the On the floor lying on the tummy exercise
-TBB but is more advanced.
+这是俯卧姿势练习（TBB）的延续，但更加高级。
 
-**Position ATB1**
+**姿势 ATB1**
 ![](/images/Image388.jpg){width="246" height="200"}
-Previously the student was able to get the foot to the shoulder. Now
-that foot is grasped and pulled down towards the floor as ATB1.
+之前，学生能够将脚抬到肩膀位置。现在，这只脚被抓住并向下拉向地板，如 ATB1 所示。
 
-**Position ATB2**
+**姿势 ATB2**
 ![](/images/Image389.jpg){width="320" height="166"}
-The rear leg stays stretched to the rear and the toes of this foot
-should remain in contact with the floor. As the student becomes more
-flexible in the back the front foot will touch the floor as ATB2.
+后腿保持向后伸展，这只脚的脚趾应该与地板保持接触。随着学生背部变得更加灵活，前脚将会触及地板，如 ATB2 所示。
 
-### Time to move on
+### 是时候继续了
 
-By this stage the student has a back with good flexibility and a new
-exercise is introduced - the layover.
+到了这个阶段，学生的背部具有良好的灵活性，同时引入了一种新的锻炼方式——趴前脸。
 
-Again, the exercise does not require balance as it is done on the chest.
-This allows relaxation by the student and the ability to achieve much
-greater flexibility.
+同样，这项运动不需要平衡，因为它是在胸部上完成的。这使得学生能够放松，并能够达到更大的灵活性。
 
-### Layover from chest on chair or couch.
+#### 椅子上做趴前脸
 
-The aim is to achieve the maximum back bend. This will be achieved from
-a comfortable chest position on a comfortable base. The legs are allowed
-to drape over the shoulders and the natural weight of the legs and seat
-tighten the bend.
+目标是实现最大程度的背部弯曲。这将从一个舒适的胸部姿势开始，在一个舒适的基础上实现。双腿允许垂在肩膀上，腿部和臀部的自然重量会加强弯曲。
 
-**Position CLO1**
+**姿势 CLO1**
 ![](/images/Image390.jpg){width="159" height="200"}
-Entry to start position is achieved by a simple back bend to the chair
-(or couch) as at picture CLO1. Early in the bend contact with the chair
-will be made by the hands and they take a support role getting into the
-start position.
+进入起始姿势是通过简单的背部弯曲到椅子（或沙发）上来完成的，如图 CLO1 所示。在弯曲的早期阶段，双手会与椅子接触，并且它们在进入起始姿势时起支撑作用。
 
-**Position CLO2**
+**姿势 CLO2**
 ![](/images/Image391.jpg){width="224" height="200"}
-It is important that the student gets properly into the start position
-and she should wriggle herself (position CLO2) until the exact position
-of chest, chin, arms and hands for the start position is achieved.
+学生正确进入起始位置非常重要，她应该蠕动自己（位置CLO2），直到达到起始位置胸部、下巴、胳膊和双手的确切位置。
 
-**Position CLO3**
+**姿势 CLO3**
 ![](/images/Image291.jpg){width="289" height="200"}
-The start position is seen in CLO3. Note that the chin is on the seat of
-the chair as are the hands and that the hands are just in front of the
-chin. The arms are in a position where they are providing maximum
-support to stop any forward roll off the chair. This position is another
-"comfort zone" one. I have deliberately chosen a furniture item that
-the student will know well. Its surface is soft and comfortable and it
-is relatively low to the ground. No balance is required and the student
-will be able to relax while doing the exercise part.
+起始姿势如图 CLO3 所示。请注意，下巴在椅子的座位上，双手也在座位上，并且双手位于下巴的前方。胳膊的位置是为了提供最大的支撑，防止向前滚出椅子。这个姿势是另一个“舒适区”。我特意选择了学生熟悉的家具。其表面柔软舒适，离地面相对较低。不需要平衡，学生将能够在进行运动的同时放松。
 
-**Position CLO4**
+**姿势 CLO4**
 ![](/images/Image392.jpg){width="203" height="200"}
-Bring the legs over as in position CLO4. The toes can be pointed and
-they should touch the floor. While most seats are low enough to allow
-this an unusually high seat and student with short legs may need
-suitably sized cushions placed on the floor so that the toes can touch
-this and take load if needed because this is the "rest" position.
+将双腿移到如 CLO4 所示的位置上。脚趾可以指向，并且应该触碰地板。虽然大多数座位的高度足够低，可以允许这样做，但如果座位异常高，而学生的腿较短，可能需要在地板上放置合适大小的垫子，以便脚趾能够触碰垫子，必要时可以承受压力，因为这是“休息”姿势。
 
-**Position CLO5**
+**姿势 CLO5**
 ![](/images/Image393.jpg){width="320" height="144"}
-Both legs are then raised as in position CLO5 and the bend in the back
-tightens.
+然后，两条腿都像姿势 CLO5 中所示的那样抬起，背部的弯曲会加紧。
 
-**Position CLO6**
+**姿势 CLO6**
 ![](/images/Image394.jpg){width="203" height="200"}
-From this position one leg is brought back into position as shown in
-position CLO6 and then returned to position as CLO5. Then the other leg
-is taken through the same motion. This continuously performed "cycling
-type" motion will tighten the bend considerably and after the specified
-number of cycling actions the student returns to the rest position as in
-CLO4.
+从这个姿势开始，一条腿被带回到 CLO6 所示的位置，然后再返回到 CLO5 的位置。然后另一条腿经历相同的运动。这种连续执行的“循环型”运动将显著加强弯曲。在完成指定次数的循环动作后，学生回到 CLO4 的姿势位置。
 
-This exercise will have a large number of repetitions resting in CLO4
-between them. As the student does more and more of this exercise she
-will start to feel her seat make contact with her upper back from time
-to time.
+这个练习会有大量的重复动作，它们之间会在 CLO4 的姿势休息。随着学生做越来越多的这个练习，她会开始时不时感觉到臀部与上背部接触。
 
-At this stage she will be able to relax and if she allows the weight of
-the legs and seat to take over while in the position of picture CLO4 she
-will, in time, be able to get her seat to touch her own back and rest in
-the position.
+在这个阶段，她将能够放松，如果在图 CLO4 的姿势，她允许腿部和臀部的重量接管，她将逐渐能够使臀部接触自己的背部，并在这个位置休息。
 
-This exercise will have prepared the back for any tight bending. Now
-that the student is very flexible in the back it is time to introduce
-other positions where some balance is required. For example, a standing
-back bend would now be introduced because the back is supple and only
-the standing balance will be new.
+这个练习将会为任何紧密弯曲做好准备。现在学生的背部非常柔软，是时候引入其他需要一些平衡的姿势了。例如，现在可以引入站立后弯，因为背部足够柔软，只有在站立位保持平衡是需要学习的。
 
-<span class="important">Utilizing the elbow stand for back bending.</span> Although a hand stand
-requires considerable balance a stand done on the forearms (elbow stand)
-is relatively easy. The elbow stand is a very useful balance position
-because considerable back bending can be carried out in this balance.
+<span class="important">利用肘倒立进行后弯。</span> 虽然倒立需要相当的平衡能力，但在前臂上进行的站立（肘倒立）相对较容易。肘倒立是非常有用的平衡姿势，因为在这种平衡中可以进行相当大的后弯。
 
-### Position for an elbow stand.
+#### 肘倒立
 
-**Position EST1**
+**姿势 EST1**
 ![](/images/Image395.jpg){width="216" height="200"}
-The best initial position to get started with an elbow stand is shown in
-position EST1. It is entered from a backbend to hands dropping to
-elbows. Note that the elbows are a little wider apart than the shoulders
-and the forearms are on the floor with the fingers spread and flat on
-the floor. The upper arms can be vertical or a little off vertical
-depending on the position of the body. The feet are firmly on the floor.
+开始进行肘倒立的最佳初始位置如图 EST1 所示。从一个向后弯曲到手掌落地到肘部的动作中进入。请注意，肘部的间距比肩膀稍微宽一些，前臂放在地板上，手指伸开平放在地板上。上臂可以垂直或稍微倾斜，具体取决于身体的位置。双脚稳稳地放在地板上。
 
-**Position EST2**
+**姿势 EST2**
 ![](/images/Image396.jpg){width="199" height="200"}
-Now raise the head and arch the back while you lift onto tiptoes as
-picture EST2. The toes will be taking very little weight at this stage.
-Raise the head a little more and the feet will come off the floor.
+现在抬起头部，弯曲背部，同时站在脚尖上，如图 EST2 所示。此时，脚尖将承受很小的重量。再抬高头部，双脚将离开地板。
 
-**Position EST3**
+**姿势 EST3**
 ![](/images/Image397.jpg){width="158" height="200"}
-The position EST3 should be held. For a start the feet will return to
-touch the floor but the aim is to remain on the elbows without feet
-contact and this balance will quickly be mastered.
+保持姿势 EST3。起初，双脚会回到接触地板，但目标是在肘部上保持平衡，不接触双脚，这种平衡很快就会掌握。
 
-### A few elbow stand positions in combination with back bends
+#### 一些结合肘倒立和后弯的姿势
 
-1\. A simple exercise.
+1\. 一个简单的练习。
 
-Starting from EST1. Bring one foot back to the hands and grasp it with
-both hands. This is still a very stable position because the two elbows
-and foot make the base triangle.
+从 EST1 开始。将一只脚向后移动到双手处，用双手抓住。这仍然是一个非常稳定的姿势，因为两个肘部和脚形成了三角形。
 
-**Position SX01**
+**姿势 SX01**
 ![](/images/Image398.jpg){width="150" height="200"}
-Raise one foot from the floor bending the knee and getting to position
-SX01 ..
+抬起一只脚，弯曲膝盖，达到姿势 SX01。
 
-**Position SX02**
+**姿势 SX02**
 ![](/images/Image399.jpg){width="97" height="199"}
-Raise the leg to vertical pointing the foot as position SX02\\85.
+将腿抬至垂直位置，脚趾指向头顶，达到姿势 SX02。
 
-**Position SX03**
+**姿势 SX03**
 ![](/images/Image400.jpg){width="287" height="200"}
-Now bring the leg rearwards towards the floor to the equivalent of the
-splits position. SX03\\85
+现在将腿向后移到地板上，达到等同于劈叉的姿势。
 
-From the SX03 position return the leg back to alongside the other foot
-on the floor.
+从 SX03 的姿势将腿回移到地板上，与另一只脚并排。
 
-In reality, this is not very much of an elbow stand balance because
-there is always the foot on the floor as the triangle base and this
-makes the position very stable. The exercise is, however, a good starter
-to more difficult elbow stand exercises. The higher you raise the head
-the tighter will be the back bend. It is also possible for a girl with a
-good over split to touch the floor with the toes of the rear foot.
+实际上，这并不是一个真正的肘立平衡，因为始终有一个脚在地板上，作为三角形的基础，这使得姿势非常稳定。然而，这个练习是更难的肘立式练习的好起点。抬起头部的高度越高，背部的弯曲就越紧。对于一个具有很好超级劈叉能力的女生，后脚的脚趾也可以触碰地板。
 
-2\. Another simple exercise.
+2\. 另一个简单的练习。
 
-Starting from EST1. This time raise both feet off the floor at the same
-time.
+从 EST1 开始。这次同时抬起双脚离开地板。
 
-**Position SX11**
+**姿势 SX11**
 ![](/images/Image401.jpg){width="182" height="200"}
-See position SX11. For a start this may be more easily done if the feet
-are brought in so that they are against the head. This provides a little
-easier balance. At this stage you have a true elbow balance because the
-feet are off the floor and the balance is achieved from the elbows along
-to the hands.
+请参考姿势 SX11。起初，如果将双脚移到头部附近，这可能会更容易实现。这会提供稍微更容易的平衡。在这个阶段，你已经处于一个真正的肘倒立平衡状态，因为双脚离开了地板，平衡是从肘部到手部实现的。
 
-**Position SX12**
+**姿势 SX12**
 ![](/images/Image402.jpg){width="320" height="188"}
-Slowly raise the feet while maintaining balance and have the legs
-parallel with the floor as position SX12.
+慢抬起双脚，保持平衡，使双腿与地板平行，达到姿势 SX12。
 
-**Position SX13**
+**姿势 SX13**
 ![](/images/Image403.jpg){width="176" height="200"}
-Continue to raise the legs higher as in position SX13.
+继续抬高双腿，如姿势 SX13 所示。
 
-**Position SX14**
+**姿势 SX14**
 ![](/images/Image404.jpg){width="130" height="200"}
-Now you can bend each leg in turn so that the foot touches the head as
-in position SX14.
+现在你可以轮流弯曲每条腿，使脚触碰头部，就像姿势 SX14 所示。
 
-**Position SX11**
+**姿势 SX11**
 ![](/images/Image401.jpg){width="182" height="200"}
-Return the legs to the floor by bringing them down alongside the face as
-in position SX11 on the way to the floor.
+通过将双腿降低到脸的旁边，回到地板上，途中经过 SX11 姿势。
 
-3\. A more advanced exercise.
+3\. 一个比较高级的练习。
 
-**Position EST1**
+**姿势 EST1**
 ![](/images/Image395.jpg){width="216" height="200"}
-Starting from EST1. This being the normal start position.
+从 EST1 开始，这是正常的起始姿势。
 
-**Position AEX32**
+**姿势 AEX32**
 ![](/images/Image399.jpg){width="97" height="199"}
-Grasp one foot then raise the head reasonably high and this will tighten
-the bend then raise the other leg to the vertical as in position AEX32.
+抓住一只脚，然后抬高头部，这会加强弯曲，然后将另一条腿抬到垂直位置，如同姿势 AEX32 所示。
 
-**Position AEX33**
+**姿势 AEX33**
 ![](/images/Image405.jpg){width="151" height="200"}
-Let go the foot and bring this leg up to the top leg but to assist the
-balance bend at the knee as AEX33.
+放开脚，将这条腿移到上腿旁边，但为了帮助平衡，弯曲膝盖，如 AEX33 所示。
 
-**Position AEX34**
+**姿势 AEX34**
 ![](/images/Image406.jpg){width="176" height="200"}
-Finally, bring the feet down to parallel the floor and sit on the head
-as the back bends more and more as AEX34. Return the feet to the start
-position.
+最后，将双脚放下与地板平行，坐在头部上，随着背部弯曲得越来越多，就像AEX34所示。将双脚回到起始位置。
 
-You have seen some of the lovely results that you will achieve following
-the exercises of this program. If you only follow them correctly and
-exercise much daily you will be able to get into the position below.
+你已经看到了在这个计划的练习中将会实现的一些美好结果。只要正确地跟随并每天多做练习，你就能够达到下面的姿势。
 
 ![](/images/Image407.jpg){width="320" height="151"}
 
-That is going to be your progression in loosening up your back. Note
-that there has not been a standing backbend or anything requiring
-balancing. That will come later.
+这将是你在背部柔韧性方面的进步。请注意，这里没有站立下腰之类需要平衡的动作。那将在以后的章节说明。
 
-[Now let's start training!](./introduction)
+[现在开始训练吧！](./introduction)
 
 

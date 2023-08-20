@@ -227,7 +227,7 @@ contact the back of the legs and the seat is against the back.
 **Picture E1**
 ![](/images/Image365.jpg){width="195" height="200"}
 If the feet were reasonably apart for this bend then the head will be
-through the thighs as at Picture E. In this position there is a
+through the thighs as at Picture E1. In this position there is a
 reasonable amount of pull force on the arms and hands and another option
 may be preferred as follows.
 
@@ -388,7 +388,7 @@ In both of these positions there is no balance required and since both
 are on the floor the student has no fears about falling over. They can
 also be carried out assisted.
 
-### Exercise lying on the side
+#### Exercise lying on the side
 
 This exercise could not be simpler. The student is on the floor on her
 side and does the exercise positions that follow.
@@ -408,19 +408,19 @@ passes the shoulder it is time to introduce a minor change in the
 exercise because the back is getting more supple and this needs to be
 exploited.
 
-Positon LBB3
+**Position LBB3**
 ![](/images/Image381.jpg){width="230" height="184"}
 LBB3 is the third stage of this exercise and the contortion trainee
 grasps both feet at the same time and pulls both feet down over the
 shoulders. Once she can get both feet to her shoulders there is little
 value in continuing this exercise.
 
-On the floor lying on the tummy.
+#### On the floor lying on the tummy.
 
 Again, this exercise could not be simpler. The student is on the floor
 on her tummy and does the exercise positions that follow.
 
-Posiotion TBB1
+**Position TBB1**
 ![](/images/Image382.jpg){width="212" height="84"}
 Position TBB1 is the start and the student arches the back, assisted by
 the hands pushing.
@@ -453,7 +453,9 @@ exercises:
 - Kneeling on the floor with a backbend
 - On the tummy with backbend
 
-Kneeling on the floor and back bend. Being a kneeling pose any backbend
+#### Kneeling on the floor and back bend.
+
+Being a kneeling pose any backbend
 will cause no overbalance difficulty so the student will be quite
 confident and, therefore, relaxed about the position. The vertebrae will
 be achieving big angular change during this exercise.
@@ -480,7 +482,7 @@ significantly. This will allow the student to move the hands further and
 further along the legs towards the knees as KBB3. In time the hands will
 be able to grasp in front of the knees.
 
-### On the tummy with backbend
+#### On the tummy with backbend
 
 This is a continuation of the On the floor lying on the tummy exercise
 TBB but is more advanced.
@@ -505,7 +507,7 @@ Again, the exercise does not require balance as it is done on the chest.
 This allows relaxation by the student and the ability to achieve much
 greater flexibility.
 
-### Layover from chest on chair or couch.
+#### Layover from chest on chair or couch.
 
 The aim is to achieve the maximum back bend. This will be achieved from
 a comfortable chest position on a comfortable base. The legs are allowed
@@ -579,7 +581,7 @@ requires considerable balance a stand done on the forearms (elbow stand)
 is relatively easy. The elbow stand is a very useful balance position
 because considerable back bending can be carried out in this balance.
 
-### Position for an elbow stand.
+#### Position for an elbow stand.
 
 **Position EST1**
 ![](/images/Image395.jpg){width="216" height="200"}
@@ -602,7 +604,7 @@ The position EST3 should be held. For a start the feet will return to
 touch the floor but the aim is to remain on the elbows without feet
 contact and this balance will quickly be mastered.
 
-### A few elbow stand positions in combination with back bends
+#### A few elbow stand positions in combination with back bends
 
 1\. A simple exercise.
 
@@ -613,16 +615,16 @@ and foot make the base triangle.
 **Position SX01**
 ![](/images/Image398.jpg){width="150" height="200"}
 Raise one foot from the floor bending the knee and getting to position
-SX01 ..
+SX01.
 
 **Position SX02**
 ![](/images/Image399.jpg){width="97" height="199"}
-Raise the leg to vertical pointing the foot as position SX02\\85.
+Raise the leg to vertical pointing the foot as position SX02.
 
 **Position SX03**
 ![](/images/Image400.jpg){width="287" height="200"}
 Now bring the leg rearwards towards the floor to the equivalent of the
-splits position. SX03\\85
+splits position.
 
 From the SX03 position return the leg back to alongside the other foot
 on the floor.
