@@ -8,7 +8,7 @@
 ## How to use the contortion barre
 
 The contortion barre is a tool that will make it make it possible for
-you to bend even more and improve your strenght, but also improve your
+you to bend even more and improve your strength, but also improve your
 balance. The latter is especially thanks to that gravity makes most work
 for you. I was introduced to it by former contortionist Laura Guerriero
 and she learned me both how it's supposed to be made, but also how to
@@ -20,7 +20,7 @@ recommendation is that you do them assisted and if possible with
 weights, but if you don't have someone to assist you you can use it
 too, even if it'll be more difficult to get into the positions in the
 beginning. The combination of your imagination, gravity and an assistant
-is unbeatable and will help you improve your flexibility and strenght
+is unbeatable and will help you improve your flexibility and strength
 much faster than you think. If you have weights of the kind used in
 aerobics or fitness here's the chance to make use of them, but if you
 don't have any weights have your assistant help gravity a bit by **very
@@ -37,7 +37,7 @@ imagination.
 
 As you can see the contortion barre can be used with good success for
 training frontbends. In this position you will improve both your
-strenght and flexibility and your goal is to get your head and shoulders
+strength and flexibility and your goal is to get your head and shoulders
 between the legs and stay there. Then the assistant should take your
 hands and pull them downwards towards the floor and keep you in the
 position for at least 2 minutes, but preferably longer. Do at least 15
@@ -46,11 +46,11 @@ and <strong>increase the height to at least 1 meter during the process. <span cl
 
 <!-- ![](/images/imogene_winchester1.jpg){width="140" height="198"} -->
 
-Also this position will improve both your strenght and flexibility and
+Also this position will improve both your strength and flexibility and
 initially you will need assistance to get into it, but after some time
 you shouldn't be assisted when getting into it. There are two ways of
 doing this exercise. The first one serves in increasing the especially
-the strenght in your back muscles, but also your back flexibility. From
+the strength in your back muscles, but also your back flexibility. From
 a hanging straight position bend backwards bouncing towards being able
 to grab your legs, then release and bounce backwards repeating at least
 25 times. With time try to make the bounces slower so that you change to

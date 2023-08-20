@@ -250,7 +250,7 @@ overbent elbows you most likely have Ehlers-Danlos Syndrome). Very often
 the symptoms show gradually, often with pain or dislocations, and
 increase with time to states that aren't controllable. It's not a
 question if it happens, but when. To prevent this it's important to
-learn to do controlled dislocations, build up strenght and flexibility
+learn to do controlled dislocations, build up strength and flexibility
 around all joints and practicing yoga and contortion does all this. The
 reason is simple. If a symptom like a dislocation occurs and it isn't
 controlled your muscles will go into spasm. Being able to do a

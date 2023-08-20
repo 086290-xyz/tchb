@@ -14,7 +14,7 @@ overbent elbows you most likely have Ehlers-Danlos Syndrome). Very often
 the symptoms show gradually, often with pain or dislocations, and
 increase with time to states that aren't controllable. It's not a
 question if it happens, but when. To prevent this it's important to
-learn to do controlled dislocations, build up strenght and flexibility
+learn to do controlled dislocations, build up strength and flexibility
 around all joints and practicing yoga and contortion does all this. The
 reason is simple. If a symptom like a dislocation occurs and it isn't
 controlled your muscles will go into spasm. Being able to do a
@@ -582,7 +582,7 @@ and Urszula. It will come quicker than you think...
 
 ![](/images/bbfs-os-01.jpg){width="233" height="220"}
 
-...and <span class="underline">with</span> <span class="underline">assistance</span> <span class="underline">and after doing all splits and leg exercises</span> to Elzbieta's 305 degrees
+...and <span class="underline">with assistance and after doing all splits and leg exercises</span> to Elzbieta's 305 degrees
 oversplit. This is as far as it's possible to go and requires a partial
 dislocation of the rear leg. 
 
@@ -935,7 +935,7 @@ overbent elbows you most likely have Ehlers-Danlos Syndrome). Very often
 the symptoms show gradually, often with pain or dislocations, and
 increase with time to states that aren't controllable. It's not a
 question if it happens, but when. To prevent this it's important to
-learn to do controlled dislocations, build up strenght and flexibility
+learn to do controlled dislocations, build up strength and flexibility
 around all joints and practicing yoga and contortion does all this. The
 reason is simple. If a symptom like a dislocation occurs and it isn't
 controlled your muscles will go into spasm. Being able to do a

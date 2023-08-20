@@ -75,7 +75,7 @@ also will help you to get better.
 
 Something I also recommend strongly is the use of the contortion barre
 when you can do more advanced backbends. It will make it possible for
-you to bend more and improve your strenght, but also improve your
+you to bend more and improve your strength, but also improve your
 balance. Feel free to use your imagination to find which exercises could
 be best done using the contortion barre. 
 [For schematics of the contortion barre click here. ](./contortion_barre)
@@ -767,7 +767,7 @@ Another example of how far this exercise will get you. The backfold.
 
 This is an advanced serie of positions that you should do when you're
 able of doing backfolds. It will be very hard on your muscles since you
-both work on your soupleness, strenght and endurance. Do all of the
+both work on your soupleness, strength and endurance. Do all of the
 positions exactly as told and in everyone where possible try to tension
 your muscles bouncing a little bit from time to time while you hold
 yourself in the backfold. Also it's important that you increase the

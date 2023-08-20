@@ -148,28 +148,9 @@
 
 ## 他人辅助拉伸
 
-If you have difficulty getting into the position or to keep the stretch
-you <span class="underline">always should</span> have someone to [assist you](./assparex). It's the best way to get the best
-results and most athletes, dancers, gymnasts and other professionals
-have their coaches to assist them in their stretching. One of the
-assistants most important functions is to keep you in the position,
-since otherwise you'll most likely go out of the position or stretch
-far to early. The assistant should push you firmly and if you're
-advanced very firmly into the position and then hold you in it for at
-least 30 seconds, then release so that there's no stretch for a short
-time, again repeating giving it a little bit more stretch than the last
-time as many times as mentioned in the exercise schedule or more until
-the muscles can't be stretched more. For each repeat the time the
-assistant holds you should increase with a few seconds seconds. **You
-must stay completely relaxed at all times.** The second most important
-function of the assistant is to see that you don't get out of the
-position. In the beginning this method can be quite uncomfortable and
-even very painful depending on your pain treshold, but no pain gain. The
-secret is not to give up and you'll soon find that you prefer to be
-assisted than stretching by yourself. Assisted stretches always give far
-better results than if you try to do it yourself, but this is of course
-your and the coaches prerogative to choose which method to use. As force
-is included the trust towards the assistant is of greatest importance.
+如果你在达到姿势或保持伸展时遇到困难，你<span class="underline">总是应该</span>有人来协助你。[这里](./assparex)是达到最佳效果的最佳方法。大多数运动员、舞者、体操运动员和其他专业人士都有教练来协助他们进行伸展锻炼。助手的其中一个最关键的作用是帮助你保持正确的姿势，因为如果没有帮助，你很可能会失去正确的对齐或过早地释放伸展。助手应该施加适当的压力来引导你进入姿势，尤其是如果你已经很进阶了，然后保持该姿势至少 30 秒。之后，他们应该释放压力，让你稍微放松一下，暂时不要伸展。重复这个过程，每次都逐渐增加伸展的程度，按照锻炼计划进行，或直到你的肌肉不能再被进一步拉伸为止。每次重复时，助手保持伸展的时间应该增加几秒钟。**在整个过程中始终保持完全放松是至关重要的。**
+
+助手的第二个最重要的作用是确保你保持正确的姿势。最初，这种方法可能会让人感到不适甚至非常痛苦，这取决于你的疼痛耐受能力，但要记住：“没有付出就没有收获。”关键是要坚持下去，你可能会发现与其自己伸展，你更喜欢得到协助。辅助伸展相比独自进行伸展通常能产生更好的效果。最终，选择使用的方法——辅助伸展还是独立伸展——取决于你和你的教练。由于这种方法涉及力量，与助手建立信任非常重要。
 
 <div class="img-group">
 
@@ -178,25 +159,13 @@ is included the trust towards the assistant is of greatest importance.
 
 </div>
 
-The pictures above are of a contortion student being stretched into a
-270 degree oversplit. All repeats were carried out (with a resting
-around 10 degrees less from the last repeats) on both legs from sitting
-in a regular split to the 270 degrees oversplit. As you can see her
-first attempts weren't comfortable as you can see, but today she can
-sit comfortably in a oversplit for longer periods having the rear leg
-horizontally on the floor and the front leg vertically on the wall and
-then change doing the same with the other legs **without standing up!** 
-It took her two months doing this daily to achieve this position and six
-more to be able to sit in the position for as much as one hour
-comfortably. 
+上面的图片是一名柔术学生正在进行 270 度超级劈叉的拉伸训练。所有的重复动作都是在两条腿上完成的（与上一次重复相比，休息时减少了大约 10 度），从坐在常规分开的姿势到270度的超级劈叉。正如你所看到的，她的第一次尝试并不舒适，但是今天她可以在超级劈叉的姿势中舒适地坐上更长的时间，后腿水平放在地板上，前腿垂直放在墙上，然后换另一条腿做同样的动作，**而不需要站起来！**
+
+她每天进行这样的训练持续了两个月才达到这个姿势，再经过六个月的训练，她才能够在这个姿势中舒适地坐上整整一个小时。
 
 ![](/images/kwiciuosp01.jpg){width="245" height="196"}
 
-An other example is this rhythmic gymnast. Her oversplits are amazing,
-up to 300 degrees, and she can apparently, according to her coach, stay
-in them without any time limits at all. The secret is that she has been
-assisted in her stretches on a daily basis from the very first
-beginning, when she started doing gymnastics.
+另一个例子是这位艺术体操运动员。她的超级劈叉令人惊叹，高达300度，而且据她的教练说，她可以在这个姿势中无时间限制地停留。秘诀在于，她从一开始就开始进行每日的伸展训练，并且一直得到协助，从她开始进行体操训练的时候就开始了。
 
 <div class="img-group">
 
@@ -205,195 +174,85 @@ beginning, when she started doing gymnastics.
 
 </div>
 
-An other example is Helena. She only uses assisted stretches and you can
-judge from the result yourself. The picture to the right is her backbend
-which she reached after over one year. Normally it takes at least the
-double amount of time to accomplish a backfold like this no matter what
-age you are and then you normally won't get that good without being
-assisted. 
+正如我之前提到的，起初辅助伸展是非常不舒服的，但你的疼痛耐受力，特别是你的耐力，会比你想象得快提高，这使得比起看到上面的图片，实际情况要容易得多。助手在帮助你做一些你平常无法忍受的事情——让你保持一种你本来无法坚持的姿势，因为缺乏耐力或者初始阶段的疼痛和不适。然而，这种情况会很快改变，变成帮助你达到某个你即使感觉舒适也无法在没有帮助的情况下达到的姿势。解释很简单。对于大多数人来说，初始达到一定程度的灵活性是最不舒服甚至无法忍受的，从两周到两个月不等，这取决于你的伸展程度和初始的柔韧性。但是随着你练习的时间越长，不适感会越来越少，直到在那段时间后，你应该会感觉在这个姿势中很舒适，然后可以继续努力保持这个姿势的时间，越来越久，并且越来越深入，仍然感觉很舒适。这也是为什么大多数专业人士，如杂技演员、舞者、柔术演员和体操运动员都更喜欢辅助伸展。在进行表演时，你总是应该保留 20% 的灵活性储备，以保持始终的舒适感。每个专业人士都知道这一点。此外，辅助伸展是达到极限柔韧性的最有效方法，比任何其他伸展方法都要快得多（专业人士也知道这一点），最重要的是——你可以在整个伸展过程中保持放松，从而也会感到舒适！此外，随着你进行辅助伸展的次数增多，你的疼痛耐受力也会改变，这使你能够在开始阶段进步得更多、更快。如果你与不同性别的伙伴一起训练，并且希望始终保持相同的水平，那么进行辅助伸展是一个很好的选择。如果你的伙伴是男性，应该使用辅助伸展。在这种情况下，保持伸展的时间要比女性伙伴更长，并且保持相同的程度。
 
-As I mentioned before assisted stretches are very uncomfortable in the
-beginning, but your pain treshold and especially your endurance will
-improve much faster than you think and this makes it much easier than
-you think from seeing the picture above. The assistant is helping you
-with what you normally wouldn't stand - holding you in a position you
-wouldn't stand, because of lack of endurance or of too much initial
-pain or discomfort. This, however, changes very rapidly to helping you
-reaching a certain position that you wouldn't be able to reach without
-any help even if you're comfortable doing it. The explanation is
-simple. For most the initial reaching of a certain level of flexibility
-assisted is most uncomfortable or even unbearable the first two weeks to
-the first two months depending on how far you go and depending on how
-flexible you are in the beginning, but it gets less and less
-uncomfortable the longer time you practice and after that amount of time
-you should feel comfortable in the position and instead work on staying
-as longer and longer in the position and getting deeper and deeper into
-it and still feeling comfortable. That's also the reason why most
-professionals like acrobats, dancers, contortionists and gymnasts prefer
-assisted stretches. You always should have a 20% flexibility reserve
-when you're to perform in order to always being comfortable while
-working. Every professional knows this. Also assisted stretching is the
-most efficient way to extreme flexibility and it goes much faster than
-any other mean of stretching (professionals know that too) and most
-important - you can stay relaxed during all of the stretch and then it
-also gets comfortable! Also your pain treshold will change the more you
-do assisted stretches making it possible for you to advance much more
-and faster than in the beginning. If you train together with a partner
-of a different gender, and you wish to be at the same lever at all times
-do assisted stretches. If it's a male partner assisted should be used.
-In this case hold the stretches longer and to the same level as the
-female partner.
+具有过度活动性，即天然柔韧性的人，应该尽可能多地进行辅助伸展。这可以减轻过度活动性的症状。如果按照描述进行辅助伸展，它们是实现灵活性更快的非常好的有效方法。每个锻炼都可以通过辅助来完成，在大多数锻炼中，你会找到说明如何完成的注释，但不要害怕尝试。如果你和你的助手了解自己的极限并且彼此信任，这是不危险的。同时，也请随时随地向我们（i.e. 原作者）提问。
 
-Persons with hypermobility, hence with natural flexibility, should do
-assisted stretches as much as possible. This decreases the symptoms of
-hypermobility. If assisted stretches are done as described they are a
-very good and effective alternative for achieving supplenes much faster.
-Every exercise can be done assisted and in most you'll find notes
-suggesting how this can be done, but don't be afraid to experiment.
-It's not dangerous if you and your assistant know your limits and you
-trust eachother. Also feel free to ask us.
+你会比你想象中更快达到目标。
 
-You will get there sooner than you think.
+<span class="important">重要提示1！</span> 在做后弯动作后，务必做前弯动作，即使只做一次。后弯动作越高级，前弯动作就应该越高级。它们应该相互对应。这是为了平衡后背，同时也能加强和延伸脊柱及其周围的肌肉。同时还要做所有其他类型的锻炼。它们之间相互对应，将有助于全身的整体提升。
 
-<span class="important">Important notice 1!</span> Always do a frontbend after doing a backbend, even
-if only once. The more advanced backbend is the more advanced frontbend
-should be. They should correspond to eachother. This is for balance in
-the back, but also strenghtens and lengthens the spine and the muscles
-around it. It's also important to do all the other types of exercises.
-They all correspond to eachother and will help you to get better
-allover. 
+<span class="important">重要提示2！</span> 如果你的髋关节或肩膀曾经脱位一次或多次，你应该学会如何进行受控脱位，同时在进行辅助伸展锻炼时也应该使用，这是你在这里的锻炼中主要使用的方法。这往往是过度活动性的症状，你迟早会再次脱位。除非特别提及，医生通常会忽视这一点。其中一个原因可能是大约 40% 的人口具有过度活动症，而且往往没有意识到。症状通常包括关节疼痛、关节过度活动和脱位（例如，如果你可以在很短的时间内学会做开腿劈叉，但肩膀部分脱位——通常会听到一声噼啪声——或者如果你的肘部过度弯曲，那么你很可能是过度活动性的）。症状通常逐渐显现，常伴有疼痛或脱位，有时会随着时间的推移逐渐加重，导致无法控制的状态。这不是问题是否会发生，而是何时会发生。为了预防这种情况，重要的是要学会进行受控脱位，在所有关节周围建立力量和柔韧性，而做柔术可以实现这一切。原因很简单。如果出现脱位等症状，而没有得到控制，你的肌肉会痉挛。能够进行受控脱位可以防止这种情况，应该每天多次进行。受控脱位是指你能够将关节脱位，<span class="underline">通过另一肢体的帮助或者由其他人协助</span>，移动肢体，然后将它放回到正常状态。所有可能脱位的关节都应该按照这种方式进行训练，受控脱位必须成为你正常运动范围的一部分！重要的是要训练所有可能脱位的关节，因为你曾经在髋关节等地方经历过非受控脱位，并不意味着下一次不会出现在肩膀等地方，而且脱位会逐渐恶化，最终变得无法控制。你应该以同样的方式对待后弯和后折，因为脱位可能蔓延到肢体周围以外的其他部位。在进行后弯，特别是后折锻炼时，可以放一根棍子、一根手指或适当的物品来增加折叠，部分脱位椎骨。最后，<span class="underline">非常</span>重要的一件事：建议使用[柔术把杆](./contortion_barre)。
 
+<span class="important">重要提示3！</span> 我和合著者都无法处理每天 300 多封寻求帮助和建议的邮件！提供这样的服务将意味着全职工作。因此，电子邮件地址已从本网站中删除。我们仅接收有限数量的学生，并提供每学期 200 欧元或每年 400 欧元的在线帮助、建议和辅导。如有任何疑问，请随时写信至 \<learn2contort@yahoo.se\>。
 
-<span class="important">Important notice 2!</span> If you have suffered from one or many dislocations
-in either hips or shoulders you should learn to do controlled
-dislocations as well as use assisted stretching as you mainly used
-method when doing the exercises here. This often is a symptom of
-hypermobility and you will sooner or later dislocate again. This is
-often missed by MD's unless this is mentioned. One reason could be that
-around 40% of the population are hypermobile and often without knowing
-it. The symptoms can often be  pain in joints, hypermobility and
-dislocations of the joints (for example if you can learn how to do a
-split in a short time, partially dislocate your shoulders - that often
-means that you will hear a popping or cracking sound - or if you have
-overbent elbows you most likely are hypermobile). Very often the
-symptoms show gradually, often with pain or dislocations, and sometimes
-increase with time to states that aren't controllable. It's not a
-question if it happens, but when. To prevent this it's important to
-learn to do controlled dislocations, build up strenght and flexibility
-around all joints and practicing contortion does all this. The reason is
-simple. If a symptom like a dislocation occurs and it isn't controlled
-your muscles will go into spasm. Being able to do a controlled
-dislocation prevents this and it should be done many times on a daily
-basis. A controlled dislocation is a dislocation where you are able to
-dislocate the joint, move the limb <span class="underline">with the help of another limb or with help from someone that assists you</span> and then putting it
-back to it's normal state. All joints that can be dislocated should be
-trained in this order of fashion and the controlled dislocation must
-become a part of your normal range of movement! It's important to train
-all joints that dislocate, because that you once had an uncontrolled
-dislocation in i.e. the hips doesn't mean that the next won't be in
-the shoulders etc and the dislocations gradually worsens for each time
-making it impossible to control them in the end. You should work the
-same way with backbends and later  backfolds since the dislocations can
-spread to other areas than the joints around the limbs. When working on
-backbends and especially backfolds put a stick, a finger or something
-appropriate to increase the fold and partially dislocate the vertebrae.
-The last part is <span class="underline">very</span> important! Using [the contortion barre](./contortion_barre) is recommended. Persons that have
-experienced or experiences symptoms like dislocating, pain in joint and
-hypermobility should work towards being able to do all of the program to
-perfection, as a prevention, to be able to get the joints and the
-muscles around the joints supple to the outer limit and learn to control
-them in situations like this by doing controlled dislocations as much as
-possible. Also all exercises, if possible, should be done assisted with
-firm stretches until the maximum suppleness is reached at least once
-each day, preferrably more! This might be difficult, uncomforable and
-even painful, but *only* in the beginning. It's not as difficult as it
-sounds and that is something you've probably found out by now or will.
-Do this with an open mind and enjoy yourself.
+## 练习计划的编制
 
-<span style="font-weight: bold; font-size: larger;">Important notice 3!</span> There's no possibility for neither me or the
-co-authors to handle 300+ mails asking for help and advice - daily!
-Providing such a service would mean a full time occupation. Therefore
-the email addresses have been removed from this site. A limited number
-of students can be admitted and receive online help, advice and coaching
-for €200 per semester or €400 / year. For any inquiries feel free to
-write to <learn2contort@yahoo.se>. 
+<div style="font-weight: bold">
 
-## Schedule construction
+以下是两个锻炼顺序的示例。这只是一些建议，因为这通常是因人而异的，取决于你的柔韧性和力量，但是这个顺序也已经证明能够获得最好的效果，我建议按照这个顺序逐步从新手阶段的计划到高级阶段的计划，逐步进行下一个更高级的锻炼。你应该始终努力做你能够做的最高级的锻炼或变化。
 
-**Here are two examples of the order you can do the exercises in. It's
-only a recommendation, since it normally is individual depending on your
-flexibility and strenght, but this order has also shown to give the best
-results and I suggest to do them in this order slowly advancing from the
-new-beginner shedule to the advanced schedule, by doing the next more
-advanced exercise. You should always strive for doing the most advanced
-exercise or variation that you can.**
+</div>
 
-### Newbeginners schedule
+### 新手练习计划
 
-1. [Frontbend exercise](./frontbends)
-1. [Frontbend exercise](./frontbends)
-1. [Sidebend exercise](./twists)
-1. [Backbend flexing exercise](./backbends)
-1. [Backbend on the floor exercise](./backbends)
-1. [Backbend on the side exercise](./backbends)
-1. [Leg behind the back exercise](./legs_behind_the_back)
-1. [Hip flexing exercise](./other_leg_exercises)
-1. [Splits exercise](./splits)
-1. [Splits starters and flexing exercise](./splits)
-1. [Splits flexing on the back exercise](./splits)
-1. [Frontbend stretch into splits exercise](./frontbends)
-1. [Backbend flexing exercise](./backbends)
-1. [Shoulder exercise](./shoulders)
+1. [前折练习](./frontbends)
+1. [前折练习](./frontbends)
+1. [侧弯练习](./twists)
+1. [后折柔韧性练习](./backbends)
+1. [地面后折练习](./backbends)
+1. [单侧后折练习](./backbends)
+1. [腿在背后练习](./legs_behind_the_back)
+1. [腿部柔韧性练习](./other_leg_exercises)
+1. [劈叉练习](./splits)
+1. [劈叉初学者练习](./splits)
+1. [劈叉与后腰练习](./splits)
+1. [前折到劈叉练习](./frontbends)
+1. [后折柔韧性练习](./backbends)
+1. [肩部练习](./shoulders)
 
-If you can or have time try to do more exercises in the same order. If
-possible always have someone to assist you in the stretches. If you can
-make as many exercises using [the contortion barre](./contortion_barre) as possible.
+如果你可以或有时间，尽量按照相同的顺序做更多的锻炼。如果可能的话，总是找人来帮助你进行伸展。如果可以的话，尽量多地使用[柔术把杆](./contortion_barre)进行锻炼。
 
-## Semi advanced level schedule
+## 中级练习计划
 
-1. [Frontbend exrecise](./frontbends)
-1. [Back bend flexing exercise](./backbends)
-1. [Backbend on the floor exercise](./backbends)
+1. [前折练习](./frontbends)
+1. [后折柔韧性练习](./backbends)
+1. [地面后折练习](./backbends)
 1. [Backbend (layover) exercise](./backbends)
-1. [(Frontbend with) twist exercise](./twists)
+1. [（前折与）扭腰练习](./twists)
 1. [Kneeling backbend exercise](./backbends)
-1. [Splits on the back exercise](./splits)
+1. [劈叉与后腰练习](./splits)
 1. [Backbend on tummy exercise](./backbends)
-1. [Leg behind the back exercise](./legs_behind_the_back)
-1. [Frontbend through the legs exercise](./frontbends)
-1. [Splits on the back exercise](./splits)
+1. [腿在背后练习](./legs_behind_the_back)
+1. [自腿的前折练习](./frontbends)
+1. [劈叉与后腰练习](./splits)
 1. [Backbend (layover) exercise](./backbends)
 1. [Kneeling backbend exercise](./backbends)
 1. [Backbend (chest layover combination) exercise](./backbends)
-1. [(Frontbend with) twist exercise](./twists)
-1. [Splits on the back exercise](./splits)
-1. [Side splits toes up with oversplit exercise](./splits)
-1. [Side splits toes to the front with oversplit exercise](./splits)
-1. [Splits with backbend exercise](./splits)
-1. [Splits with front leg raise exercise](./splits)
-1. [Splits on the back exercise](./splits)
-1. [Leg behind the back exercise](./legs_behind_the_back)
+1. [（前折与）扭腰练习](./twists)
+1. [劈叉与后腰练习](./splits)
+1. [脚尖向上的超级竖叉练习](./splits)
+1. [脚尖向前的超级竖叉练习](./splits)
+1. [劈叉与后折练习](./splits)
+1. [劈叉与前腿抬起练习](./splits)
+1. [劈叉与后腰练习](./splits)
+1. [腿在背后练习](./legs_behind_the_back)
 1. [Backbend (layover) exercise](./backbends)
-1. [Backbend (elbowstand flexing) exercise](./backbends)
+1. [后折（肘倒立）练习](./backbends)
 1. [Backbend (layover, extreme) exercise](./backbends)
-1. [(Frontbend with) twist exercise](./twists)
-1. [Leg behind the back exercise](./legs_behind_the_back)
+1. [（前折与）扭腰练习](./twists)
+1. [腿在背后练习](./legs_behind_the_back)
 1. [Backbend (layover, extreme) exercise](./backbends)
-1. [Splits on the back exercise](./splits)
-1. [Shoulder exercise](./shoulders)
-1. [Shoulder exercise](./shoulders)
+1. [劈叉与后腰练习](./splits)
+1. [肩部练习](./shoulders)
+1. [肩部练习](./shoulders)
 
-If you can or have time try to do more exercises in the same order. If
-possible always have someone to assist you in the stretches. If you can
-make as many exercises using [the contortion barre](./contortion_barre) as possible.
+如果你可以或有时间，尽量按照相同的顺序做更多的锻炼。如果可能的话，总是找人来帮助你进行伸展。如果可以的话，尽量多地使用[柔术把杆](./contortion_barre)进行锻炼。
 
-## Advanced level schedule
+## 高级练习计划
 
-All advanced exercises should be done with perfection without anyone
-assisting you! In the last exercise have someone to assist you to get
-"beyond" the position and to increase the amount of time you can stay
-in the position. The same using [the contortion barre](./contortion_barre).
+所有高级锻炼都应该在没有任何人帮助的情况下做到完美！在最后一个锻炼中，有人可以协助你达到“超越”姿势，并增加你可以保持姿势的时间。同样地，可以使用[柔术把杆](./contortion_barre)来进行锻炼。
 
-<p style="font-size: larger; color: red; text-align: center; font-weight: bold;">GOOD LUCK!</p>
+<p style="font-size: larger; color: red; text-align: center; font-weight: bold;">祝你好运！</p>
 
 

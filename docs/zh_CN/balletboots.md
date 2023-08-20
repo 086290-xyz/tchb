@@ -122,7 +122,7 @@ for you if you're to wear ballet boots on a regular basis. 
   half hour of standing and walking is just fine in the beginning, but
   never less than that.
 - Practice the pointe either bare feet or using pointe ballet shoes
-  daily if you wear ballet boots to build up strenght. Remember that
+  daily if you wear ballet boots to build up strength. Remember that
   the ballet boots only are an aid even if they are comfortable to
   wear.
 

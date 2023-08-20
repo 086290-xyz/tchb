@@ -64,7 +64,7 @@ you've lost some of your flexibility because of age. Something that is
 recommended is to stretch daily for around a month before you start
 doing these exercises. Easier yoga asanas like the sun greeting are
 recommend warmly since it will give you the basic flexibility and
-strenght needed to do the exercises without struggling too much, but
+strength needed to do the exercises without struggling too much, but
 normal stretching is enough. Also it's worth mentioning that yoga is
 <span class="underline">very</span> similar to contortion.
 
@@ -95,7 +95,7 @@ important are
   some things while others come easily. Most important is to practice
   daily. For me practicing yoga and contortion sport has meant
   stopping the progress of EDS completely with all of it's symptoms.
-- that your strenght will improve
+- that your strength will improve
 - that your endurance will improve
 - that your pain treshold will improve remarcably
 - that your range of movement will improve dramatically
@@ -192,7 +192,7 @@ It will definately make the practicing much more interesting, so don't
 be afraid of having fun. If you have done all the exercises and feel
 that you have more time then try to do them over again. You will be
 amazed over how much easier it will be. Repeats are the secret to become
-and stay real supple. You also build strenght in the muscles this way.
+and stay real supple. You also build strength in the muscles this way.
 
 But again, as I said before, your set goals also have a lot to say and
 it can be well enough with an hour daily to increase the overall
@@ -403,7 +403,7 @@ begin using these exercises I would recommend to do some easy stretching
 exercises or easier yoga asanas for a month. Some basic flexibility
 won't hurt and it will be much easier to do even the easiest exercise.
 
-If you aren't strong in your back you will also need to to strenghten
+If you aren't strong in your back you will also need to to strengthen
 it, so you can return to an upright position after a backbend. One way
 is to lie on your back on the top of a gym horse, couch or bed with
 someone sitting on your lower legs, with your upper body overhanging the
@@ -541,8 +541,7 @@ least 30 seconds, then release so that there's no stretch for a short
 time, again repeating giving it a little bit more stretch than the last
 time as many times as mentioned in the exercise schedule or more until
 the muscles can't be stretched more. For each repeat the time the
-assistant holds you should increase with a few seconds seconds. **You
-must stay completely relaxed at all times.** The second most important
+assistant holds you should increase with a few seconds seconds. **You must stay completely relaxed at all times.** The second most important
 function of the assistant is to see that you don't get out of the
 position. In the beginning this method can be quite uncomfortable and
 even very painful depending on your pain treshold, but no pain gain. The
@@ -639,7 +638,7 @@ You will get there sooner than you think.
 <span class="important">Important notice 1!</span> Always do a frontbend after doing a backbend, even
 if only once. The more advanced backbend is the more advanced frontbend
 should be. They should correspond to eachother. This is for balance in
-the back, but also strenghtens and lengthens the spine and the muscles
+the back, but also strengthens and lengthens the spine and the muscles
 around it. It's also important to do all the other types of exercises.
 They all correspond to eachother and will help you to get better
 allover. 
@@ -660,7 +659,7 @@ overbent elbows you most likely are hypermobile). Very often the
 symptoms show gradually, often with pain or dislocations, and sometimes
 increase with time to states that aren't controllable. It's not a
 question if it happens, but when. To prevent this it's important to
-learn to do controlled dislocations, build up strenght and flexibility
+learn to do controlled dislocations, build up strength and flexibility
 around all joints and practicing contortion does all this. The reason is
 simple. If a symptom like a dislocation occurs and it isn't controlled
 your muscles will go into spasm. Being able to do a controlled
@@ -701,13 +700,17 @@ write to <learn2contort@yahoo.se>. 
 
 ## Schedule construction
 
-**Here are two examples of the order you can do the exercises in. It's
+<div style="font-weight: bold">
+
+Here are two examples of the order you can do the exercises in. It's
 only a recommendation, since it normally is individual depending on your
-flexibility and strenght, but this order has also shown to give the best
+flexibility and strength, but this order has also shown to give the best
 results and I suggest to do them in this order slowly advancing from the
 new-beginner shedule to the advanced schedule, by doing the next more
 advanced exercise. You should always strive for doing the most advanced
-exercise or variation that you can.**
+exercise or variation that you can.
+
+</div>
 
 ### Newbeginners schedule
 

@@ -518,11 +518,11 @@ is important is that you do this <span class="underline">daily</span>. Many ball
 dancers walk in en-pointe bare foot for at least 30-45 minutes and then
 2 hours with pointe shoes (around 30 minutes at the barre for warming up
 and then 120 minutes dancing). You'll also be able to do that in time.
-Pointe training will strenghten and stretch the calfs and get the feet
+Pointe training will strengthen and stretch the calfs and get the feet
 and toes used to this position. The stretches mentioned above will also
 be improved a lot. In the beginning you'll probably need assistance or
 will need to hold on to something, a barre is a good suggestion, because
-this requires both strenght and a special walking technique very similar
+this requires both strength and a special walking technique very similar
 to the one seen in ballet and only training will get you there. Therefor
 you should always begin in the turnout, because this walking technique
 requires this! In time you'll even be able to comfortably jump
