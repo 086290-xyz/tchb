@@ -4,7 +4,7 @@ import MarkdownItAttrs from "markdown-it-attrs";
 // https://vitepress.dev/reference/site-config
 export default defineConfig({
   title: "TCHB",
-  description: "A VitePress Site",
+  description: "The Contortionist's Handbook",
   locales: {
     root: {
       label: "English",

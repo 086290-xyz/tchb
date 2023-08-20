@@ -18,182 +18,89 @@
 ![](/images/Image348.jpg){width="168" height="200"}
 这是一个典型的近距离弯曲示范。与 B 相比，这是在下背部区域的几个椎骨处更紧密的弯曲，但上背部是笔直的，肋骨完全没有弯曲。这个姿势的起始方式与B相同，但她想要将头穿过大腿。她抓住膝盖处的腿，并从图 B 的位置拉进来。注意她的臀部已经更多地旋转。此外，承受弯曲的几个椎骨必须具有比图 B 中更大的角度运动。由于她的臀部紧贴着背部，所以不可能获得更紧密的弯曲。
 
-The flexible back has a great capacity to bend at various vertebrae. It
-is obvious that the easiest part to bend is the lower back because there
-is no restriction. The further up the back one moves, the rib cage
-starts to limit angular movement.
+柔软的背部在各个椎骨处具有很大的弯曲能力。很明显，最容易弯曲的部位是下背部，因为那里没有限制。背部向上移动，肋骨开始限制角度运动。
 
-What do we learn from this? Somewhat obviously, the back can become
-exceptionally flexible and can produce a graceful bend. It is possible
-for vertebrae to move to extreme angles during a bend. I should point
-out here that the positions above are all standing back bends. There is
-a requirement to retain balance to stop from falling over and, as you
-can see in B, a good deal of muscle control is required.
+从中我们可以学到什么？显然，背部可以变得异常灵活，并产生优美的弯曲。在弯曲过程中，椎骨可以移动到极端角度。我在这里应该指出，上述的位置都是站立的后弯姿势。为了保持平衡，需要保持平衡，以防止摔倒，正如您在 B 中所看到的，需要很多肌肉控制。
 
-Of course, on the chest or elbows the back simply bends where it wants
-to be comfortable. I will explain why I make that statement.
+当然，使用胸部或肘部接触地面时，背部会在更舒适的位置弯曲。我将解释为什么我会这样说。
 
 **图 D**
 ![](/images/Image349.jpg){width="251" height="200"}
-Here the contortionist has her chest on the floor and has dragged her
-feet in to the shoulders. The more of her body that is on the floor, the
-more comfortable she is going to be. The lower back vertebrae have
-provided the considerable angular movement to achieve the pose. There is
-no balance requited as in a standing pose so the back relaxes into where
-it is most comfortable.
+在这里，柔术演员的胸部紧贴地板，双脚拉到肩膀处。她的身体越多接触地板，她就会感到越舒适。下背部的椎骨提供了相当大的角度，以完成这个姿势。与站立姿势不同，这里不需要平衡，因此背部会放松到最舒适的位置。
 
 **图 E**
 ![](/images/Image350.jpg){width="302" height="200"}
-Picture E has some similarity but here we see a layover and this is
-interesting. The contortionist is on the table and her weight is taken
-on the chest above the breasts. Only a small part of her body is resting
-on the table. In this picture, because the legs are hanging her back has
-not taken up the bend as at picture D. Something very interesting has
-happened! Notice that the bend has moved to higher vertebra to allow the
-legs to pull the seat towards the floor! So her back has simply taken up
-the bend at the most comfortable part of the back by providing angular
-movement of a few, but different, vertebrae.
+图 E 有一些相似之处，但这里出现了一种叠加效果，这很有趣。柔术演员躺在桌子上，她的重量承受在胸部上方的乳房区域。只有很小一部分身体靠在桌子上。在这张图片中，由于腿部悬空，她的背部没有像图 D 中那样弯曲。非常有趣的事情发生了！请注意，弯曲已经移到了更高的椎骨，以允许双腿将座位拉向地板！因此，她的背部简单地在背部的最舒适部位一些不同椎骨的提供了实现弯曲的角度。
 
 **图 F**
 ![](/images/Image351.jpg){width="247" height="200"}
-Picture F shows a contortionist with an interesting bend. There is
-angular movement low down the back but she also has movement of the
-vertebrae higher up at the ribcage area.
+图 F 展示了柔术演员的一个有趣的弯曲。背部底部有一定角度，但她的椎骨在肋骨区域上部也有一些角度。
 
-Conclusion.
-When the back becomes more and more flexible it will adapt to the
-requirements of the position the contortionists gets herself into. It
-will not modify the vertebrae angles if the contortionist maintains
-strict muscular control of her body. When there is relaxation of the
-muscles, however, the back will take the bend at the most comfortable
-vertebrae for the occasion. It is more difficult to bend the back at the
-rib cage area and a great angular movement at these vertebrae can not
-occur. It is relatively easier to bend the back at the lower vertebrae
-where quite large angular movement between vertebrae can be achieved.
+**总结**
 
-**A standing back bend showing progression in 6 pictures.**
+当背部变得越来越柔软时，它将适应柔术演员所采取的姿势要求。如果柔术演员对自己的身体保持严格的肌肉控制，它不会改变椎骨的角度。然而，当肌肉放松时，背部将在最舒适的椎骨处弯曲以适应场合。在肋骨区域弯曲背部相对较难，这些椎骨之间不会产生大的角度运动。相对而言，在下部椎骨弯曲背部会比较容易，可以实现相当大的椎骨之间角度运动。
+
+**以下是一系列共6张图片，展示了站立后弯姿势的不同阶段。**
 
 **图 G**
 ![](/images/Image352.jpg){width="216" height="200"}
-In picture G the contortionist has pivoted forward at the hips. As she
-is doing this she arches the back. This keeps her weight over the feet
-which are providing balance.
+在图 G 中，柔术演员在髋部前倾。在这个过程中，她弯曲了背部。这使得她的重量保持在提供平衡的双脚上。
 
 **图 H**
 ![](/images/Image353.jpg){width="214" height="200"}
-At picture H she has allowed the lower back to take all the bending
-movement as she continues the bend and she has controlled her upper back
-which is straight. To retain balance she has swayed forward with her
-hips.
+在图 H 中，随着弯曲的继续，柔术演员让下背部承担了所有的弯曲运动，同时控制着保持笔直的上背部。为了保持平衡，她用髋部向前倾斜。
 
 **图 I**
 ![](/images/Image354.jpg){width="271" height="200"}
-Picture I shows the upper body still straight and this is due to her
-control. The lower vertebrae continue to absorb the bend by increasing
-the angular displacement of a few vertebrae. The vertebrae that have
-produced the "bend" have managed considerably better than 90 degrees
-of angle over a very few vertebrae. The back is an amazing part of your
-body structure to be able to do this \\96 but it does it as you bend
-your fingers in extreme ways! Now, on with the next three pictures.
+在图 I 中，上半身仍然保持笔直，这要归功于她的控制。下部椎骨继续通过增加少数几个椎骨的角度位移来吸收弯曲。产生“弯曲”的椎骨在极少数几个椎骨上的角度超过了90度，表现出很大的灵活性。背部是你身体结构中令人惊叹的一部分，正如同你可以极端弯曲手指那样！现在，继续下面的三张图片。
 
 **图 J**
 ![](/images/Image355.jpg){width="265" height="200"}
-Continuing with the bend she now pivots at the hips as shown in picture
-J and brings the head down to behind the thighs. Notice that her legs
-are more erect because the body weight has closed up towards the legs.
+继续弯曲，她现在在髋部旋转，如图 J 所示，并将头部放在大腿后面。请注意，由于身体重心朝向腿部，她的腿部更加笔直。
 
 **图 K**
 ![](/images/Image356.jpg){width="191" height="200"}
-As is often the case with a back bend picture K shows her grasping one
-leg just above the knee without increasing the bend that was there at
-picture J. Having grasped one leg she has a stable base and can now
-grasp the other leg and then pull her body in to the final position at
-Picture L.
+与后弯姿势常见的情况一样，如图 K 所示，她抓住了一条腿，就在膝盖上方，而没有增加图片 J 中已有的弯曲。一旦抓住一条腿，她就有了稳定的支撑基础，现在可以抓住另一条腿，然后将身体拉到最终的位置，如图 L 所示。
 
 **图 L**
 ![](/images/Image357.jpg){width="220" height="200"}
-Things to note about picture L are that her head is well down the thighs
-with the shoulders about mid way between seat and knee. That means the
-bend has been taken by a few low back vertebrae. The original
-straightness of the upper back remains unchanged from the earlier
-pictures. Her seat is firmly against her back towards the bottom of the
-rib cage. Holding the legs just above the knees tends to lock the legs.
-Grasping below the knees would have allowed the knees to bend more
-easily.
+关于图 L 需要注意的是，她的头部位于大腿上方，肩膀大约位于臀部和膝盖之间。这意味着弯曲是由一些下背椎骨完成的。与早期的图片相比，上背部的原始笔直状态保持不变。她的臀部牢牢地靠在背部，位于肋骨下部。抓住膝盖上方会使双腿锁定。如果抓住膝盖下方，膝盖会更容易弯曲。
 
-This was a classic entry to a perfect back bend with the head between
-the thighs. You'll be able to do this in time if you practice!
+这是一个经典的入门动作，可以完成完美的后弯，头部位于大腿之间。如果你练习的话，以后也能够做到这一点！
 
-Now a few different positions with comments!
+现在，让我们来看一些不同的姿势，并附上一些评论！
 
 **图 M**
 ![](/images/Image358.jpg){width="176" height="200"}
-Picture M shows the head well up and the position of the shoulders
-against the legs is only just below the seat. The vertebrae taking the
-bend angle are relatively high in her back.
+图 M 显示头部抬高，肩膀与腿的位置仅略低于臀部。承受弯曲角度的椎骨位于她背部相对较高的位置。
 
 **图 N**
 ![](/images/Image359.jpg){width="169" height="200"}
-Picture N is really impressive as well. The contortionist has her bend
-at the vertebrae in the lowest part of her back. Lower than picture M.
-Her shoulders are definitely lower down the leg than M.
+图 N 也非常令人印象深刻。柔术演员在她背部最低部分的椎骨处弯曲。比图片 M 还要低。她的肩膀在腿上的位置明显比 M 低。
 
 **图 O**
 ![](/images/Image360.jpg){width="183" height="200"}
-Picture O is interesting. Firstly the girl has a thick ribcage and while
-there is a bit of rib showing the girl is not too thin. But she has very
-little in the way of padding on her seat! The back has a wonderful bend
-but the lack of a seat means that it is unusual. What is more, the pose
-does not look as tight because she has insufficient seat to make contact
-with her back.
+图片 O 非常有趣。首先，这位女孩有着壮硕的肋骨，尽管有一些肋骨显露出来，但女孩并不是太瘦。但她的臀部几乎没有任何脂肪！背部呈现出美妙的弯曲，但缺乏臀部脂肪使得这个姿势变得不寻常。更重要的是，这个姿势看起来不够紧凑，因为她的臀部不足以与背部接触。
 
-So this is the backbend. It is one of the classic contortionists
-positions because, while most people can bend down and touch their toes
-to the front, very few people can do a back bend. But,the back and its
-vertebrae can bend a lot. Even more than you ever can imagine. Several
-adjacent vertebrae can each achieve a considerable angular movement to
-give what almost seems to be a broken back appearance. Contortionists
-exercise to make greater the angular movement of their joints so
-allowing then to adopt positions that others find amazing. Hopefully
-this insight and explanation will enlighten you a bit about the capacity
-a back has to achieve great angular movement of the vertebrae through
-exercise. This knowledge will, in turn, give you the confidence to relax
-when bending your lower vertebrae into a back bend and will allow you to
-bend your own vertebrae to a greater angle than you previously thought
-possible.
+所以这就是后弯。这是经典柔术演员姿势之一，因为大多数人可以前倾弯曲触摸脚尖，但很少有人能够做后弯。但是，背部及其椎骨可以弯曲得非常多，甚至超出你的想象。相邻的几个椎骨每个都可以实现相当大的角度运动，使其看起来几乎像是断裂的背部外观。柔术演员通过锻炼来增加关节的角度运动，从而能够采取其他人认为惊人的姿势。希望这个见解和解释能让你对通过锻炼使椎骨获得很大角度运动的背部能力有些了解。这种知识将进而使你在将下部椎骨弯曲成后弯时获得信心，并允许你将自己的椎骨弯曲到比以前想象的更大角度。
 
-Now for another back bend. This time a different entry style.
+现在换一个后弯的例子。这次是另一个起始姿态。
 
 **图 A**
 ![](/images/Image361.jpg){width="203" height="200"}
-For her entry into the back bend (Picture A) the girl has pivoted
-forward at the hips. This is always a good start to retain balance. At
-this point I should say that a back bend should not be hurried. It
-should always be a movement performed with deliberation and slow
-movement. The back is deeply arched, and the vertebrae give great
-angular movement at the lower back. The head is tilted well back until
-the back of the head comes up against the seat. This is a locked
-position where there is stability.
+对于她进入后弯姿势的方法（图 A），女孩在髋部前倾。这通常是保持平衡的良好起点。在这一点上，我应该说后弯姿势不应该匆忙进行。它应该是一个经过深思熟虑和缓慢移动的动作。背部深度弯曲，椎骨在下背部提供了很大的角度运动。头部向后倾斜，直到后脑勺触碰到座位。这锁定在一个稳定位置上。
 
 **图 B**
 ![](/images/Image362.jpg){width="167" height="200"}
-From this position the hip pivot is lessened progressively (Picture B)
-but the back kept arched. As the pivot is reduced the head slowly slides
-down the contour of the seat and the hip pivot slowly disappears. The
-bend in the back is kept as tight as possible and with this movement
-different vertebrae change their angular movement as the bend
-progresses.
+从这个位置开始，髋部的前倾逐渐减少（图 B），但背部保持弯曲。随着前倾的减小，头部缓慢地沿着座位的轮廓滑下，髋部的前倾逐渐消失。背部的弯曲尽可能保持紧凑，随着运动的进行，不同的椎骨会改变其角度运动。
 
 **图 C**
 ![](/images/Image363.jpg){width="143" height="200"}
-Picture C compared to A & B will show this action.
+与 A 和 B 图相比，图 C 将展示这个动作。
 
 **图 D**
 ![](/images/Image364.jpg){width="186" height="200"}
-The legs are now grasped at the knee as Picture D to give a steady base
-and pivot action at the hips bring the shoulders down well below the
-seat. The arms are then used to pull the bend in until the shoulders
-contact the back of the legs and the seat is against the back.
+现在膝盖处抓住双腿，就像图片 D 所示，以获得稳定的基础，髋部的旋转动作将肩膀拉到座位以下。然后使用双臂将弯曲程度拉近，直到肩膀接触到腿的后部，臀部靠在背部。
 
 **图 E1**
 ![](/images/Image365.jpg){width="195" height="200"}

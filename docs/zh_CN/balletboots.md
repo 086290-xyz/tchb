@@ -1,5 +1,7 @@
 # 使用芭蕾靴做足尖立
 
+![](/images/balletani.gif){width="48" height="80"}
+
 As you know by now achieving the pointe can help you in order to do more
 of the exercises better. However it's not always possible to have
 footbenders made nor to have someone to assist you in stretching your
@@ -13,11 +15,19 @@ this handbook, Lotta, wears ballet boots only and on a daily basis. Much
 of the information therefore comes from there as well as from the users
 that has mentioned this.
 
-<!-- ![](/images/ballet_ancle_boot.jpg){width="285" height="192"} -->
+::: danger
+
+图片丢失 \{ url="/images/ballet_ancle_boot.jpg" width="285" height="192" \}
+
+:::
 
 Ballet ancle boots. 
 
-<!-- ![](/images/ballet_knee_lenght_boot.jpg){width="148" height="193"} -->
+::: danger
+
+图片丢失 \{ url="/images/ballet_knee_lenght_boot.jpg width="148" height="193" \}
+
+:::
 
 Ballet knee length boots 
 
@@ -31,13 +41,14 @@ flexibility and strength (which however won't happen if you wear ballet
 knee length boots for extended periods). Ballet boots can easily be
 found in numerous shoe stores or Ebay on the internet. 
 
-<div class="img-group">
+::: danger
 
-<!-- ![](/images/ballet-heels1.jpg){width="183" height="315"}
-![](/images/ballet-heels2.jpg){width="229" height="315"}
-![](/images/ballet-heels3.jpg){width="235" height="315"} -->
+图片丢失
+- \{ url = "/images/ballet-heels1.jpg" width="183" height="315" \}
+- \{ url = "/images/ballet-heels2.jpg" width="229" height="315" \}
+- \{ url = "/images/ballet-heels3.jpg" width="235" height="315" \}
 
-</div>
+:::
 
 When you order a ballet boot it's important that you see to that it is
 of especially rigid making it impossible to move the foot out from the
@@ -67,13 +78,14 @@ to walk all over again and today she walks in the ballet boots like if
 they were any high heel shoes. However you should, as a new-beginner,
 avoid walking in stairs in the beginning as this is far from easy. 
 
-<div class="img-group">
+::: danger
 
-<!-- ![](/images/ballet-me1.jpg){width="203" height="295"}
-![](/images/ballet-me2.jpg){width="224" height="295"}
-![](/images/ballet-me3.jpg){width="225" height="295"} -->
+图片丢失
+- \{ url = "/images/ballet-me1.jpg" width="203" height="295" \}
+- \{ url = "/images/ballet-me2.jpg" width="224" height="295" \}
+- \{ url = "/images/ballet-me3.jpg" width="225" height="295" \}
 
-</div>
+:::
 
 Above you can see what it looks like when ballet boots are worn. As you
 can see they can be used both as inner and outer wear as for clubbing..

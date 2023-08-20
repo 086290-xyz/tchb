@@ -122,7 +122,7 @@ control. The lower vertebrae continue to absorb the bend by increasing
 the angular displacement of a few vertebrae. The vertebrae that have
 produced the "bend" have managed considerably better than 90 degrees
 of angle over a very few vertebrae. The back is an amazing part of your
-body structure to be able to do this \\96 but it does it as you bend
+body structure to be able to do this, but it does it as you bend
 your fingers in extreme ways! Now, on with the next three pictures.
 
 **Picture J**

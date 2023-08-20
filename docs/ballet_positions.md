@@ -18,7 +18,11 @@ be able to do all the turnouts below beyond a turnout position.
 
 ## Second position
 
-<!-- ![](/images/Pos2.jpg){width="377" height="193"} -->
+::: danger
+
+Image lost \{ url="/images/Pos2.jpg" width="377" height="193" \}
+
+:::
 
 Turn your toes out on the same line as first position, but stand with
 your feet apart. The space between your heels should be about the lenght

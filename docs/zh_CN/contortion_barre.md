@@ -1,9 +1,12 @@
 # 柔术把杆示意
  
+::: danger
 
-<!-- ![](/images/contortion_barre1.jpg){width="787" height="548"}
+图片丢失
+- \{ url = "/images/contortion_barre1.jpg" width="787" height="548" \}
+- \{ url = "/images/contortion_barre2.jpg" width="793" height="1150" \}
 
-![](/images/contortion_barre2.jpg){width="793" height="1150"} -->
+:::
 
 ## How to use the contortion barre
 
@@ -33,7 +36,11 @@ a contortion barre and some comments to them. However remember that they
 only are examples and that there are many more. Just use your
 imagination.
 
-<!-- ![](/images/imogene_winchester2.jpg){width="139" height="199"} -->
+::: danger
+
+图片丢失 \{ url="/images/imogene_winchester2.jpg" width="139" height="199" \}
+
+:::
 
 As you can see the contortion barre can be used with good success for
 training frontbends. In this position you will improve both your
@@ -44,7 +51,11 @@ position for at least 2 minutes, but preferably longer. Do at least 15
 repeats staying longer in the maximum flexible position for each repeat
 and <strong>increase the height to at least 1 meter during the process. <span class="underline">The legs must be strapped!</span></strong>
 
-<!-- ![](/images/imogene_winchester1.jpg){width="140" height="198"} -->
+::: danger
+
+图片丢失 \{ url="/images/imogene_winchester1.jpg" width="140" height="198" \}
+
+:::
 
 Also this position will improve both your strength and flexibility and
 initially you will need assistance to get into it, but after some time
@@ -64,13 +75,14 @@ maximum flexible position keep you in the position for at least 2
 minutes, but preferably longer. Do at least 15 repeats staying longer in
 the maximum flexible position for each repeat an <strong>increase the height to at least 1 meter during the process. <span class="underline">The legs must be strapped!</span></strong>
 
-<div class="img-group">
+::: danger
 
-<!-- ![](/images/laura_guerriero4.jpg){width="159" height="224"}
-![](/images/laura_guerriero6.jpg){width="152" height="223"}
-![](/images/laura_guerriero5.jpg){width="156" height="223"} -->
+图片丢失
+- \{ url = "/images/laura_guerriero4.jpg" width="159" height="224" \}
+- \{ url = "/images/laura_guerriero6.jpg" width="152" height="223" \}
+- \{ url = "/images/laura_guerriero5.jpg" width="156" height="223" \}
 
-</div>
+:::
 
 If you wish to improve the flexibility in the upper back a good method
 is to have both your hands and legs in the straps as shown above and
@@ -82,14 +94,15 @@ minutes. As you can see it's possible to do different variations of
 this position, but the most important is that you never get out of the
 backbend while doing different variations and <strong>increase the height during the process to at least 1 meter. <span class="underline">Remember to have the legs strapped at all times!</span></strong>
 
-<div class="img-group">
+::: danger
 
-<!-- ![](/images/laura_guerriero3.jpg){width="164" height="235"}
-![](/images/laura_guerriero7.jpg){width="163" height="235"}
-![](/images/laura_guerriero8.jpg){width="165" height="235"}
-![](/images/imogene_winchester_4.jpg){width="114" height="235"} -->
+图片丢失
+- \{ url = "/images/laura_guerriero3.jpg" width="164" height="235" \}
+- \{ url = "/images/laura_guerriero7.jpg" width="163" height="235" \}
+- \{ url = "/images/laura_guerriero8.jpg" width="165" height="235" \}
+- \{ url = "/images/imogene_winchester_4.jpg" width="114" height="235" \}
 
-</div>
+:::
 
 In this position you'll hand with one leg in the barre and let the
 other fall down backwards till you can reach it and then you pull it
@@ -108,7 +121,11 @@ position shown above into oversplits and back again using the hip as a
 lever. Repeat at least 15 times with each leg and if you do the swinging
 with the hips as lever swing at least 50 times with each leg. <strong>Increase the height during the process to at least 1 meter.  <span class="underline">Remember to have the legs strapped at all times!</span></strong>
 
-<!-- ![](/images/imogene_winchester_3.jpg){width="183" height="204"} -->
+::: danger
+
+图片丢失 \{ url="/images/imogene_winchester_3.jpg" width="183" height="204" \}
+
+:::
 
 This position is warmly recommended for you when you can master
 backbends quite well. It requires that you practice at a height of at
@@ -133,12 +150,13 @@ and you will be comfortable in the position! Do at least 15 repeats with
 a different vertebrae for each repeat and if you have the possibility do
 this twice daily, in the morning and one in the evening. **If you initially begin from a few cm above the floor increase the height to at least 1 meter during the process.**
 
-<div class="img-group">
+::: danger
 
-<!-- ![](/images/laura_guerriero1.jpg){width="193" height="281"}
-![](/images/laura_guerriero2.jpg){width="195" height="277"} -->
+图片丢失
+- \{ url = "/images/laura_guerriero1.jpg" width="193" height="281" \}
+- \{ url = "/images/laura_guerriero2.jpg" width="195" height="277" \}
 
-</div>
+:::
 
 Here are two examples of using the contortion barre hanging from the
 hands while doing different exercises. <strong>It is <span class="underline">very important</span> that you hang at least 1 meter over the floor and strap your hands so that you don't fall down!</strong>

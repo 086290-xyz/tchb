@@ -1,41 +1,8 @@
 # 瑜伽、柔术与性生活
 
-Yoga and contortion can give you a lot of benefits and especially when
-you're doing it with your partner. There are some "unwritten" rules.
-First of all your partner normally should be your assistant. You should
-be his or hers. Any new exercise that he or she will assist you will be
-very unpleasant and painfull in the beginning. The partner just has to
-push you to the limit, even if this is painfull in the beginning. This
-is normal assisted stretching and you might swear over it a lot, but in
-the end you'll most likely like it. However remember that your partner
-is, expept of being an assistant, a partner. This means that what the
-partner will do to you is what you most likely will do to him or her.
-However if it's a male take it easy. Just remember that it takes longer
-time for men to achieve the same things as women can do. You must except
-that, if you're a woman, that your male partner will have a
-<span class="underline">much</span> slower progress, even if you push him as much as he
-pushes you. If you're two women you know how things are working after
-you've done most of the exercises. Go as far as you feel. You will feel
-the same exaggaration of watching and pushing yourselves to the limit
-when you do assisted stretches or any of the exercises. Anyone does.
-However, in the end, when you're both at the same level you can have
-much fun out of the yoga and contortion sport if you're partners (and
-especially involved with eachoter).
+瑜伽和柔术在你与伴侣一起练习时可以带来许多好处。有一些“无形的”规则。首先，你的伴侣通常应该是你的助手，你也应该是他或她的助手。任何新的练习在开始时都会让他或她感到非常不愉快和痛苦。伴侣只需将你推向极限，即使开始时会感到疼痛。这是正常的辅助伸展，你可能会对此大呼小叫，但最终你很可能会喜欢上它。然而，请记住，除了作为助手外，你的伴侣还是一个伴侣。这意味着你的伴侣会对你做的事情，你很可能也会对他或她做同样的事情。然而，如果是男性，放轻松——请记住，男性要达到与女性相同的成就需要更长的时间。如果你是女性，你必须接受这一点，你的男性伴侣会有<span class="underline">更</span>慢的进步，即使你像他一样推动他。如果你们两个都是女性，你们会在大部分练习之后知道事情是如何运作的。尽量走得更远，跟着自己的感觉走。当你做辅助伸展或任何练习时，你会感受到同样的夸张，将自己推向极限。无论谁都会有这种感受。然而，最终，当你们两个达到了相同的水平，如果你们是伙伴（尤其是彼此之间有互动），你们可以从瑜伽和柔术运动中获得很多乐趣。
 
-The picture collection below is there to provide you with ideas and
-suggestions on how to use yoga and contortion to improve (<span class="underline">and
-increase</span>) the sex life very remarcably, especially if
-you're involved with your partner. However there are many moral issues
-here, especially in some "countries". I see yoga and contortion as
-something as a beautiful art, but still I think that for those that
-think it can be used for more than just "for the art" I think that
-this page might be of interest. That's also the reason why this page is
-linked as it is. I won't comment any of the pictures below. It's up to
-your and your partners imagination what you can do with them and I hope
-you will enjoy them as much as I have. But remember, these are only
-suggestions. There are many other interesting positions no matter
-whether your liking is bondage, you're a heterosexual or homosexual.
-Just use your imagination :-)
+以下的图片收集旨在为您提供使用瑜伽和柔术来显著改善（<span class="underline">并增进</span>）性生活的想法和建议，尤其是如果您与伴侣一起练习。然而，在这里有许多道德问题，尤其是在一些“国家”中。我将瑜伽和柔术视为一种美丽的艺术，但我仍然认为，对于那些认为它可以用于不仅仅是“为了艺术”的人来说，我认为这个页面可能会很有兴趣。这也是为什么这个页面以这种方式链接的原因。我不会对下面的任何图片发表评论。你和你的伴侣可以根据想象力来决定如何利用它们，我希望你们会像我一样喜欢它们。但请记住，这些只是建议。不管你是否喜欢束缚，无论你是异性恋还是同性恋，都有许多其他有趣的姿势。尽情发挥你的想象力 :-)
 
 <div class="img-group">
 

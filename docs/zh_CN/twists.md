@@ -15,9 +15,14 @@ all. Do 15 repeats on both sides.
 <div class="img-group">
 
 ![](/images/Image214.jpg){width="177" height="186"}
-<!-- ![](/images/Image215.jpg){width="163" height="186"} -->
 
 </div>
+
+::: danger
+
+图片丢失 \{ url="/images/Image215.jpg" width="163" height="186" \}
+
+:::
 
 In this exercise you're going to do a frontbend with twist. The same
 way as the frontbends do it will loosen up your vertebrae for

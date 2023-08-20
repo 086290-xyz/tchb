@@ -1,71 +1,47 @@
 # 芭蕾脚位
 
-There are 5 basic ballet positions that will improve your posture and
-your hip and leg flexibility and in the longer run help you towards
-being able to easily carry out the exercises en pointé. If you're to do
-them do all 5 of them one by one in a slow sequence and at least 25
-repeats or preferably 50 repeats. It's important that they are done
-exactly as show below!
+有 5 个基本的芭蕾舞脚位，可以改善你的体态、髋部和腿部灵活性，并在长期内帮助你能够轻松地进行足尖立的练习。如果你打算做这些练习，逐一按照以下的慢动作序列完成这 5 个动作，每个至少重复 25 次，最好是 50 次。重要的是，要确保按照下面的方式进行！
 
-## First position
+## 一位脚
 
 ![](/images/Pos1.jpg){width="275" height="182"}
 
-Turn your toes out to the side with your heels touching. You must turn
-your whole leg out at the hip, not just your foot. At first you may not
-be able to turn out very far. You will improve after some hard work and
-be able to do all the turnouts below beyond a turnout position.
+将脚趾朝侧面转开，脚后跟紧贴在一起。你必须在髋部将整条腿都转向外，而不仅仅是你的脚。起初，你可能无法转得很远。经过一些努力，你会有所提升，能够在脚趾向外的姿势下完成以下所有的转开动作。
 
-## Second position
+## 二位脚
 
-<!-- ![](/images/Pos2.jpg){width="377" height="193"} -->
+::: danger
 
-Turn your toes out on the same line as first position, but stand with
-your feet apart. The space between your heels should be about the lenght
-of one of your feet. Place the whole of both feet on the floor. Don't
-roll forwards and put too much weight on your big toes.
+图片丢失 \{ url="/images/Pos2.jpg" width="377" height="193" \}
 
-## Third position
+:::
+
+将脚趾朝同一条线上的外侧转出，与一位脚相同，但站立时双脚分开。脚跟之间的间距应该大约是你一只脚的长度。将双脚整个脚掌都放在地板上。不要向前滚动，也不要在大脚趾上施加太多重量。
+
+## 三位脚
 
 ![](/images/Pos3.jpg){width="214" height="194"}
 
-Cross one foot halfway in front of the other. Don't forget it is not
-just your feet that must work. Keep your legs turned out and your body
-lifted. Your weight should be balanced evenly on both legs.
+将一只脚交叉在另一只脚的前方，位置在中间。别忘了不仅仅是你的脚需要运动。保持腿部转开，保持身体挺直。你的体重应该平均地分布在两条腿上。
 
-## Fourth position
+## 四位脚
 
 ![](/images/Pos4.jpg){width="144" height="193"}
 
-This is the most difficult position, because it's hard to maintain your
-turnout. Place one foot exactly in front of the other with a space
-between them.
+这是最困难的姿势，因为很难保持转开。将一只脚正好放在另一只脚的前面，它们之间有一些间隔。
 
-## Fifth position
+## 五位脚
 
 ![](/images/Pos5.jpg){width="147" height="180"}
 
-Your feet should be turned out, fully crossed, and touching each other
-firmly.
+你的脚应该完全交叉，紧紧地贴在一起，并且转开。
 
-## Changing between positions
+## 脚位间的过渡变换
 
 ![](/images/releve.gif){width="110" height="230"}
 
-A good example showing how to change between the positions is the one
-shown above. As you can see it should preferably be done with a pointe
-between each position when possible.
+上面展示了一个很好的如何在脚位之间过渡的示例。正如你所见，最好在可能的情况下在每个姿势之间都使用足尖立。
 
-## The turnout
+## 转开
 
-Of most importance is "learning" the concept of "turnout." I have
-learned that it is a thing of your mind, telling your muscles literally
-what to do. It is a process of imagining your thigh and hip muscles
-'turning out'. You will place your hands on the front of your hips and
-thighs and push gently around to the outside thighs, and then to the
-back, meanwhile concentrating and telling your muscles to follow. It
-takes a lot of time, and concentration, but I have found that it has
-worked for me. I can feel those very muscles strengthening. I am hoping
-before long that it will become an unconscious process, in which you
-won't have to think about it, and it will just happen.
-
+最重要的是要“学会”“转开”的概念。我已经学到，这是你的思维，告诉你的肌肉实际上要做什么。这是一个想象你的大腿和髋部肌肉“转开”的过程。你会把手放在髋部和大腿前面，轻轻地向外推动，然后推到后面，同时专注并告诉你的肌肉跟随。这需要很多时间和专注力，但我发现这对我有效。我可以感觉到那些肌肉正在增强。我希望不久之后，它会成为一种无意识的过程，你不需要考虑它，它就会自然发生。

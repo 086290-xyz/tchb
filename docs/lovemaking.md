@@ -16,11 +16,11 @@ that, if you're a woman, that your male partner will have a
 <span class="underline">much</span> slower progress, even if you push him as much as he
 pushes you. If you're two women you know how things are working after
 you've done most of the exercises. Go as far as you feel. You will feel
-the same exaggaration of watching and pushing yourselves to the limit
+the same exaggeration of watching and pushing yourselves to the limit
 when you do assisted stretches or any of the exercises. Anyone does.
 However, in the end, when you're both at the same level you can have
 much fun out of the yoga and contortion sport if you're partners (and
-especially involved with eachoter).
+especially involved with each other).
 
 The picture collection below is there to provide you with ideas and
 suggestions on how to use yoga and contortion to improve (<span class="underline">and
