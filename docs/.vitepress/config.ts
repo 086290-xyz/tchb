@@ -83,7 +83,7 @@ export default defineConfig({
   },
   themeConfig: {
     socialLinks: [
-      { icon: "github", link: "https://github.com/vuejs/vitepress" },
+      { icon: "github", link: "https://github.com/086290-xyz/tchb" },
     ],
   },
   markdown: {
