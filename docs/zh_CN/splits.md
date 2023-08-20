@@ -1,50 +1,9 @@
 # 劈叉
 
-<span class="important">Important notice!</span>  If you have suffered from one or many dislocations in
-either hips or shoulders you should learn to do controlled dislocations.
-This often is a symptom of hypermobility and you will sooner or later
-dislocate again. A medical term for this is Ehlers-Danlos Syndrome, but
-often this disease is missed by most MD's unless it's mentioned. Around
-40% of the population has Ehlers-Danlos Syndrome and often without
-knowing it. The symptoms are often pain in joints, hypermobility and
-dislocations of the joints (for example if you can learn how to do a
-split in a short time, partially dislocate your shoulders - that often
-means that you will hear a popping or cracking sound - or if you have
-overbent elbows you most likely have Ehlers-Danlos Syndrome). Very often
-the symptoms show gradually, often with pain or dislocations, and
-increase with time to states that aren't controllable. It's not a
-question if it happens, but when. To prevent this it's important to
-learn to do controlled dislocations, build up strength and flexibility
-around all joints and practicing yoga and contortion does all this. The
-reason is simple. If a symptom like a dislocation occurs and it isn't
-controlled your muscles will go into spasm. Being able to do a
-controlled dislocation prevents this and it should be done many times on
-a daily basis. A controlled dislocation is a dislocation where you are
-able to dislocate the joint, move the limb <span class="underline">with the help of another limb or with help from someone that assists you</span> and then
-putting it back to it's normal state. All joints that can be dislocated
-must be trained in this order of fashion and the controlled dislocation
-must become a part of your normal range of movement! It's important to
-train all joints that dislocate, because that you once had an
-uncontrolled dislocation in i.e. the hips doesn't mean that the next
-won't be in the shoulders etc and the dislocations gradually worsens
-for each time making it impossible to control them in the end. You
-should work the same way with backbends and later  backfolds since the
-dislocations tend to spread to other areas than the joints around the
-limbs. When working on backbends and especially backfolds put a stick, a
-finger or something appropriate to increase the fold and partially
-dislocate the vertebrae. The last part is <span class="underline">very</span> important!
-Using [the contortion barre](./contortion_barre) is recommended.
-Persons that have experienced or experiences symptoms like dislocating,
-pain in joint and hypermobility should work towards being able to do all
-of the program to perfection, as a prevention, to be able to get the
-joints and the muscles around the joints supple to the outer limit and
-learn to control them in situations like this by doing controlled
-dislocations as much as possible. Also all exercises, if possible,
-should be done assisted with firm stretches until the maximum suppleness
-is reached at least once each day, preferrably more! This might be
-difficult, uncomforable and even painful, but only in the beginning.
-It's not as difficult as it sounds and that is something you've probably
-found out by now or will.
+<span class="important">重要提示！</span> 如果你的髋关节或肩膀曾经发生过一次或多次脱臼，你应该学会进行受控脱臼练习。这通常是过度活动的症状，你迟早会再次脱臼。医学上称之为 Ehlers-Danlos 综合征，但通常情况下，除非提到，大多数医生都会忽视这种疾病。大约40%的人口患有 Ehlers-Danlos 综合征，而且通常并不自知。症状通常包括关节疼痛、过度活动和关节脱臼（例如，如果你能够在短时间内学会劈叉，部分脱臼你的肩膀——这通常意味着你会听到弹跳或咔嚓声——或者如果你的肘部过度弯曲，你很可能患有 Ehlers-Danlos 综合征）。症状往往逐渐显现，常伴有疼痛或脱臼，并随着时间的推移逐渐加重，变得无法控制。
+这不是一个是否会发生的问题，而是一个何时会发生的问题。为了预防这种情况，学会进行受控脱臼非常重要，要在所有关节周围建立力量和灵活性，练习瑜伽和柔术可以实现这一点。原因很简单。如果像脱臼这样的症状发生，而且不能受控制，你的肌肉会陷入痉挛。能够进行受控脱臼可以防止这种情况，应该每天多次进行。受控脱臼是指你能够将关节脱臼，<span class="underline">借助另一只肢体或其他人的帮助</span>移动肢体，并将其恢复到正常状态。
+所有可能脱臼的关节都必须按照这种方式进行训练，并且受控脱臼必须成为你正常运动范围的一部分！训练所有可能脱臼的关节非常重要，因为一次不受控制的脱臼，比如在髋部，不意味着下一次不会发生在肩膀等其他部位，而且脱臼会逐渐恶化，最终无法控制。在练习背弯和后折时，你应该采用同样的方法，因为脱臼往往会扩散到肢体周围的其他区域。在进行背弯和尤其是后折时，可以放一个棍子、一根手指或适当的物品来增加折叠并部分脱臼椎骨。最后件<span class="underline">非常</span>重要的事！
+建议使用[柔术把杆](./contortion_barre)。那些经历过或正在经历脱臼、关节疼痛和过度活动等症状的人应该努力将整个计划做到完美，作为一种预防措施，以使关节及其周围的肌肉能够达到最大的柔软度，并学会通过尽可能多地进行受控脱臼来在此类情况下控制它们。此外，如果可能的话，所有的练习都应该在有力的辅助下完成，直到至少每天至少一次达到极限软度，次数更多更好！这可能会很困难、不舒服，甚至疼痛，但只有在开始阶段。实际情况没有听起来那么难，这可能是你现在已经发现的，或者以后会发现的事情。
 
 ## Exercise 1
 
@@ -921,50 +880,7 @@ free to experiment as much as you like. This is Pierre doing full
 controlled dislocations. It took him 6 months from beginning doing the
 dislocated oversplit exercises to achieve this level of flexibility.
 
-<span class="important">Important notice!</span> If you have suffered from one or many dislocations in
-either hips or shoulders you should learn to do controlled dislocations.
-This often is a symptom of hypermobility and you will sooner or later
-dislocate again. A medical term for this is Ehlers-Danlos Syndrome, but
-often this disease is missed by most MD's unless it's mentioned. Around
-40% of the population has Ehlers-Danlos Syndrome and often without
-knowing it. The symptoms are often pain in joints, hypermobility and
-dislocations of the joints (for example if you can learn how to do a
-split in a short time, partially dislocate your shoulders - that often
-means that you will hear a popping or cracking sound - or if you have
-overbent elbows you most likely have Ehlers-Danlos Syndrome). Very often
-the symptoms show gradually, often with pain or dislocations, and
-increase with time to states that aren't controllable. It's not a
-question if it happens, but when. To prevent this it's important to
-learn to do controlled dislocations, build up strength and flexibility
-around all joints and practicing yoga and contortion does all this. The
-reason is simple. If a symptom like a dislocation occurs and it isn't
-controlled your muscles will go into spasm. Being able to do a
-controlled dislocation prevents this and it should be done many times on
-a daily basis. A controlled dislocation is a dislocation where you are
-able to dislocate the joint, move the limb <span class="underline">with the help of another limb or with help from someone that assists you</span> and then
-putting it back to it's normal state. All joints that can be dislocated
-must be trained in this order of fashion and the controlled dislocation
-must become a part of your normal range of movement! It's important to
-train all joints that dislocate, because that you once had an
-uncontrolled dislocation in i.e. the hips doesn't mean that the next
-won't be in the shoulders etc and the dislocations gradually worsens
-for each time making it impossible to control them in the end. You
-should work the same way with backbends and later  backfolds since the
-dislocations tend to spread to other areas than the joints around the
-limbs. When working on backbends and especially backfolds put a stick, a
-finger or something appropriate to increase the fold and partially
-dislocate the vertebrae. The last part is <span class="underline">very</span> important!
-Using [the contortion barre](./contortion_barre) is recommended.
-Persons that have experienced or experiences symptoms like dislocating,
-pain in joint and hypermobility should work towards being able to do all
-of the program to perfection, as a prevention, to be able to get the
-joints and the muscles around the joints supple to the outer limit and
-learn to control them in situations like this by doing controlled
-dislocations as much as possible. Also all exercises, if possible,
-should be done assisted with firm stretches until the maximum suppleness
-is reached at least once each day, preferrably more! This might be
-difficult, uncomforable and even painful, but only in the beginning.
-It's not as difficult as it sounds and that is something you've probably
-found out by now or will.
-
-
+<span class="important">重要提示！</span> 如果你的髋关节或肩膀曾经发生过一次或多次脱臼，你应该学会进行受控脱臼练习。这通常是过度活动的症状，你迟早会再次脱臼。医学上称之为 Ehlers-Danlos 综合征，但通常情况下，除非提到，大多数医生都会忽视这种疾病。大约40%的人口患有 Ehlers-Danlos 综合征，而且通常并不自知。症状通常包括关节疼痛、过度活动和关节脱臼（例如，如果你能够在短时间内学会劈叉，部分脱臼你的肩膀——这通常意味着你会听到弹跳或咔嚓声——或者如果你的肘部过度弯曲，你很可能患有 Ehlers-Danlos 综合征）。症状往往逐渐显现，常伴有疼痛或脱臼，并随着时间的推移逐渐加重，变得无法控制。
+这不是一个是否会发生的问题，而是一个何时会发生的问题。为了预防这种情况，学会进行受控脱臼非常重要，要在所有关节周围建立力量和灵活性，练习瑜伽和柔术可以实现这一点。原因很简单。如果像脱臼这样的症状发生，而且不能受控制，你的肌肉会陷入痉挛。能够进行受控脱臼可以防止这种情况，应该每天多次进行。受控脱臼是指你能够将关节脱臼，<span class="underline">借助另一只肢体或其他人的帮助</span>移动肢体，并将其恢复到正常状态。
+所有可能脱臼的关节都必须按照这种方式进行训练，并且受控脱臼必须成为你正常运动范围的一部分！训练所有可能脱臼的关节非常重要，因为一次不受控制的脱臼，比如在髋部，不意味着下一次不会发生在肩膀等其他部位，而且脱臼会逐渐恶化，最终无法控制。在练习背弯和后折时，你应该采用同样的方法，因为脱臼往往会扩散到肢体周围的其他区域。在进行背弯和尤其是后折时，可以放一个棍子、一根手指或适当的物品来增加折叠并部分脱臼椎骨。最后件<span class="underline">非常</span>重要的事！
+建议使用[柔术把杆](./contortion_barre)。那些经历过或正在经历脱臼、关节疼痛和过度活动等症状的人应该努力将整个计划做到完美，作为一种预防措施，以使关节及其周围的肌肉能够达到最大的柔软度，并学会通过尽可能多地进行受控脱臼来在此类情况下控制它们。此外，如果可能的话，所有的练习都应该在有力的辅助下完成，直到至少每天至少一次达到极限软度，次数更多更好！这可能会很困难、不舒服，甚至疼痛，但只有在开始阶段。实际情况没有听起来那么难，这可能是你现在已经发现的，或者以后会发现的事情。

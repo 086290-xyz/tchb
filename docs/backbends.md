@@ -834,8 +834,7 @@ loosely.
 13. Raise the legs to straight.
 ![](/images/Image432.jpg){width="230" height="159"}
 14. Grasp the legs and do not bend at the knees and pull in to a
-1-2-3-4-5 count to get the head between the thighs. Relax to **position
-12**. Do at least 30 repeats and in the last repeat try yo stay in
+1-2-3-4-5 count to get the head between the thighs. Relax to **position 12**. Do at least 30 repeats and in the last repeat try yo stay in
 position 14 for as long as you can!
 ![](/images/Image433.jpg){width="176" height="238"}
 15. Now stand up. With legs reasonably apart arch the back in a standing
@@ -930,7 +929,7 @@ Option 3: Go to the floor in a back bend.
 
 Again, I will remind you that you are starting this dismount from a
 "head between the thighs" position as above. Place the hands to the
-floor**.** Lower to an elbow support where the toes are just touching
+floor. Lower to an elbow support where the toes are just touching
 the floor for balance. Finally lower onto the chest holding the feet
 which are touching the floor for stability and you can look left and
 right.
