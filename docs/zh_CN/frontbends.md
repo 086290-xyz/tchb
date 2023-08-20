@@ -46,7 +46,7 @@ count. Repeat the exercise 15 times.
 
 <div class="img-group">
 
-![](/images/fb-ass-01.JPG){width="201" height="191"}
+![](/images/fb-ass-01.jpg){width="201" height="191"}
 ![](/images/backmass02.jpg){width="234" height="191"}
 
 </div>
@@ -90,7 +90,7 @@ the shins. Have the fingers lightly clasped behind the back and bring
 the hands with a 1-2-3-4-5 action to the position above. Relax for a 5
 count. Repeat 10 times. Try to get the hands to the floor.
 
-![](/images/fb-ass-101.JPG){width="261" height="167"}
+![](/images/fb-ass-101.jpg){width="261" height="167"}
 
 Assisted: Let the assistant pull the arms down to increase the stretch
 and hold the position there.
@@ -324,7 +324,7 @@ disappears very soon. 
 <div class="img-group">
 
 ![](/images/extrfb8.jpg){width="253" height="191"}
-![](/images/UltimateP1.JPG){width="170" height="192"}
+![](/images/UltimateP1.jpg){width="170" height="192"}
 
 </div>
 

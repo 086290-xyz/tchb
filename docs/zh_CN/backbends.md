@@ -249,7 +249,7 @@ into the bend to the 1-2-3-4-5 count. 
 <div class="img-group">
 
 ![](/images/asstb3.jpg){width="203" height="147"}
-![](/images/bb-ass-01.JPG){width="230" height="147"}
+![](/images/bb-ass-01.jpg){width="230" height="147"}
 
 </div>
 

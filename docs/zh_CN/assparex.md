@@ -29,11 +29,11 @@ imagination as much as you wish to achieve the positions.
 ![](/images/asstb4.jpg){width="255" height="153"}
 ![](/images/asstb6.jpg){width="184" height="153"}
 ![](/images/asstos1.jpg){width="171" height="154"}
-![](/images/bb-ass-01.JPG){width="232" height="147"}
+![](/images/bb-ass-01.jpg){width="232" height="147"}
 ![](/images/dresd_11.jpg){width="200" height="147"}
 ![](/images/fb3.jpg){width="207" height="147"}
-![](/images/fb-ass-01.JPG){width="150" height="147"}
-![](/images/fb-ass-101.JPG){width="225" height="146"}
+![](/images/fb-ass-01.jpg){width="150" height="147"}
+![](/images/fb-ass-101.jpg){width="225" height="146"}
 ![](/images/fb-over-ass-01.jpg){width="172" height="146"}
 ![](/images/fb-over-ass-02.jpg){width="152" height="146"}
 ![](/images/fb-over-ass-04.jpg){width="145" height="146"}

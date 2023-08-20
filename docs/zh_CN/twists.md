@@ -15,7 +15,7 @@ all. Do 15 repeats on both sides.
 <div class="img-group">
 
 ![](/images/Image214.jpg){width="177" height="186"}
-![](/images/Image215.jpg){width="163" height="186"}
+<!-- ![](/images/Image215.jpg){width="163" height="186"} -->
 
 </div>
 

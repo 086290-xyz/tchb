@@ -1,9 +1,9 @@
 # 柔术把杆示意
  
 
-<!-- ![](/images/contortion_barre1.JPG){width="787" height="548"}
+<!-- ![](/images/contortion_barre1.jpg){width="787" height="548"}
 
-![](/images/contortion_barre2.JPG){width="793" height="1150"} -->
+![](/images/contortion_barre2.jpg){width="793" height="1150"} -->
 
 ## How to use the contortion barre
 
@@ -33,7 +33,7 @@ a contortion barre and some comments to them. However remember that they
 only are examples and that there are many more. Just use your
 imagination.
 
-![](/images/imogene_winchester2.JPG){width="139" height="199"}
+<!-- ![](/images/imogene_winchester2.jpg){width="139" height="199"} -->
 
 As you can see the contortion barre can be used with good success for
 training frontbends. In this position you will improve both your
@@ -44,7 +44,7 @@ position for at least 2 minutes, but preferably longer. Do at least 15
 repeats staying longer in the maximum flexible position for each repeat
 and <strong>increase the height to at least 1 meter during the process. <span class="underline">The legs must be strapped!</span></strong>
 
-![](/images/imogene_winchester1.JPG){width="140" height="198"}
+<!-- ![](/images/imogene_winchester1.jpg){width="140" height="198"} -->
 
 Also this position will improve both your strenght and flexibility and
 initially you will need assistance to get into it, but after some time
@@ -66,9 +66,9 @@ the maximum flexible position for each repeat an <strong>increase the height to 
 
 <div class="img-group">
 
-![](/images/laura_guerriero4.JPG){width="159" height="224"}
-![](/images/laura_guerriero6.JPG){width="152" height="223"}
-![](/images/laura_guerriero5.JPG){width="156" height="223"}
+<!-- ![](/images/laura_guerriero4.jpg){width="159" height="224"}
+![](/images/laura_guerriero6.jpg){width="152" height="223"}
+![](/images/laura_guerriero5.jpg){width="156" height="223"} -->
 
 </div>
 
@@ -84,10 +84,10 @@ backbend while doing different variations and <strong>increase the height during
 
 <div class="img-group">
 
-![](/images/laura_guerriero3.JPG){width="164" height="235"}
-![](/images/laura_guerriero7.JPG){width="163" height="235"}
-![](/images/laura_guerriero8.JPG){width="165" height="235"}
-![](/images/imogene_winchester_4.jpg){width="114" height="235"}
+<!-- ![](/images/laura_guerriero3.jpg){width="164" height="235"}
+![](/images/laura_guerriero7.jpg){width="163" height="235"}
+![](/images/laura_guerriero8.jpg){width="165" height="235"}
+![](/images/imogene_winchester_4.jpg){width="114" height="235"} -->
 
 </div>
 
@@ -108,7 +108,7 @@ position shown above into oversplits and back again using the hip as a
 lever. Repeat at least 15 times with each leg and if you do the swinging
 with the hips as lever swing at least 50 times with each leg. <strong>Increase the height during the process to at least 1 meter.  <span class="underline">Remember to have the legs strapped at all times!</span></strong>
 
-![](/images/imogene_winchester_3.jpg){width="183" height="204"}
+<!-- ![](/images/imogene_winchester_3.jpg){width="183" height="204"} -->
 
 This position is warmly recommended for you when you can master
 backbends quite well. It requires that you practice at a height of at
@@ -135,8 +135,8 @@ this twice daily, in the morning and one in the evening. **If you initially begi
 
 <div class="img-group">
 
-![](/images/laura_guerriero1.JPG){width="193" height="281"}
-![](/images/laura_guerriero2.JPG){width="195" height="277"}
+<!-- ![](/images/laura_guerriero1.jpg){width="193" height="281"}
+![](/images/laura_guerriero2.jpg){width="195" height="277"} -->
 
 </div>
 

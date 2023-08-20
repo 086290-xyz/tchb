@@ -1,8 +1,5 @@
 # 使用芭蕾靴做足尖立
 
-![](/images/balletani.gif){width="48" height="80"}
-
-
 As you know by now achieving the pointe can help you in order to do more
 of the exercises better. However it's not always possible to have
 footbenders made nor to have someone to assist you in stretching your
@@ -16,11 +13,11 @@ this handbook, Lotta, wears ballet boots only and on a daily basis. Much
 of the information therefore comes from there as well as from the users
 that has mentioned this.
 
-![](/images/ballet_ancle_boot.jpg){width="285" height="192"}
+<!-- ![](/images/ballet_ancle_boot.jpg){width="285" height="192"} -->
 
 Ballet ancle boots. 
 
-![](/images/ballet_knee_lenght_boot.jpg){width="148" height="193"}
+<!-- ![](/images/ballet_knee_lenght_boot.jpg){width="148" height="193"} -->
 
 Ballet knee length boots 
 
@@ -36,9 +33,9 @@ found in numerous shoe stores or Ebay on the internet. 
 
 <div class="img-group">
 
-![](/images/ballet-heels1.jpg){width="183" height="315"}
+<!-- ![](/images/ballet-heels1.jpg){width="183" height="315"}
 ![](/images/ballet-heels2.jpg){width="229" height="315"}
-![](/images/ballet-heels3.jpg){width="235" height="315"}
+![](/images/ballet-heels3.jpg){width="235" height="315"} -->
 
 </div>
 
@@ -72,9 +69,9 @@ avoid walking in stairs in the beginning as this is far from easy. 
 
 <div class="img-group">
 
-![](/images/ballet-me1.jpg){width="203" height="295"}
+<!-- ![](/images/ballet-me1.jpg){width="203" height="295"}
 ![](/images/ballet-me2.jpg){width="224" height="295"}
-![](/images/ballet-me3.jpg){width="225" height="295"}
+![](/images/ballet-me3.jpg){width="225" height="295"} -->
 
 </div>
 
@@ -167,5 +164,3 @@ can be a good help in order to make ease the exercises.
 </div>
 
 ![](/images/balletani.gif){width="48" height="80"}
-
-

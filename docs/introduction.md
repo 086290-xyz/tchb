@@ -582,7 +582,7 @@ beginning, when she started doing gymnastics.
 <div class="img-group">
 
 ![](/images/bb-077.jpg){width="255" height="201"}
-![](/images/bb104.JPG){width="178" height="201"}
+![](/images/bb104.jpg){width="178" height="201"}
 
 </div>
 

@@ -900,7 +900,7 @@ sequence in the morning, at lunch time and in the evening).
 ![](/images/Image471.jpg){width="183" height="150"}
 ![](/images/Image472.jpg){width="208" height="150"}
 ![](/images/Image473.jpg){width="161" height="149"}
-![](/images/disll1.JPG){width="112" height="148"}
+![](/images/disll1.jpg){width="112" height="148"}
 
 </div>
 

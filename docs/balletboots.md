@@ -4,7 +4,7 @@ title: Achieving the pointe using ballet boots
 
 # Achieving the pointe using...
 
-![](/images/balletani.gif){width="48" height="80"}
+<!-- ![](/images/balletani.gif){width="48" height="80"} -->
 
 # ...ballet boots
 
@@ -21,11 +21,11 @@ this handbook, Lotta, wears ballet boots only and on a daily basis. Much
 of the information therefore comes from there as well as from the users
 that has mentioned this.
 
-![](/images/ballet_ancle_boot.jpg){width="285" height="192"}
+<!-- ![](/images/ballet_ancle_boot.jpg){width="285" height="192"} -->
 
 Ballet ancle boots. 
 
-![](/images/ballet_knee_lenght_boot.jpg){width="148" height="193"}
+<!-- ![](/images/ballet_knee_lenght_boot.jpg){width="148" height="193"} -->
 
 Ballet knee length boots 
 
@@ -41,9 +41,9 @@ found in numerous shoe stores or Ebay on the internet. 
 
 <div class="img-group">
 
-![](/images/ballet-heels1.jpg){width="183" height="315"}
+<!-- ![](/images/ballet-heels1.jpg){width="183" height="315"}
 ![](/images/ballet-heels2.jpg){width="229" height="315"}
-![](/images/ballet-heels3.jpg){width="235" height="315"}
+![](/images/ballet-heels3.jpg){width="235" height="315"} -->
 
 </div>
 
@@ -77,9 +77,9 @@ avoid walking in stairs in the beginning as this is far from easy. 
 
 <div class="img-group">
 
-![](/images/ballet-me1.jpg){width="203" height="295"}
+<!-- ![](/images/ballet-me1.jpg){width="203" height="295"}
 ![](/images/ballet-me2.jpg){width="224" height="295"}
-![](/images/ballet-me3.jpg){width="225" height="295"}
+![](/images/ballet-me3.jpg){width="225" height="295"} -->
 
 </div>
 

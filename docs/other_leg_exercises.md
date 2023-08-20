@@ -175,8 +175,8 @@ the floor.
 
 <div class="img-group">
 
-![](/images/strprep-102.JPG){width="227" height="166"}
-![](/images/strprep-103.JPG){width="269" height="164"}
+![](/images/strprep-102.jpg){width="227" height="166"}
+![](/images/strprep-103.jpg){width="269" height="164"}
 
 </div>
 
@@ -320,10 +320,10 @@ easy to do and preferably with assistance. <span class="underline">The assistant
 
 <div class="img-group">
 
-![](/images/othlex-07.JPG){width="148" height="137"}
+![](/images/othlex-07.jpg){width="148" height="137"}
 ![](/images/othlex-09.jpg){width="159" height="135"}
 ![](/images/othlex-10.jpg){width="113" height="136"}
-![](/images/othlex-14.JPG){width="180" height="136"}
+![](/images/othlex-14.jpg){width="180" height="136"}
 
 </div>
 
