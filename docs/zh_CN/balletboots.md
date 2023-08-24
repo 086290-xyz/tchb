@@ -2,18 +2,7 @@
 
 ![](/images/balletani.gif){width="48" height="80"}
 
-As you know by now achieving the pointe can help you in order to do more
-of the exercises better. However it's not always possible to have
-footbenders made nor to have someone to assist you in stretching your
-feet into the utmost pointe position. Normally this isn't a problem,
-but the situation can occur especially if you live in a place where
-no-one can assist you. This is a problem that often has been addressed
-by internet users of this exercise schedule. At the same time many
-ballet dancers has mentioned their everyday use of ballet boots as a
-quite simple solution to this problem. Also one of the co-authors of
-this handbook, Lotta, wears ballet boots only and on a daily basis. Much
-of the information therefore comes from there as well as from the users
-that has mentioned this.
+如你所知，立足尖的能力可以帮助你更好地完成更多的练习。然而，压脚背器并不总是能容易获取，也不一定会有人协助你将脚伸展到最极限的足尖位置。通常情况下这不是个问题，但特别是如果你生活在没有人可以协助你的地方，这种情况可能会发生。这是一个经常被这个练习计划的互联网用户所关注的问题。同时，许多芭蕾舞者提到他们每天使用芭蕾靴作为解决这个问题的相当简单的办法。此外，本手册的合著者之一，Lotta，仅仅穿芭蕾靴，并且每天都这么做。因此，很多信息也来自这些用户的反馈，以及 Lotta 本人的经验。
 
 ::: danger
 
@@ -21,7 +10,7 @@ that has mentioned this.
 
 :::
 
-Ballet ancle boots. 
+芭蕾短靴。
 
 ::: danger
 
@@ -29,7 +18,7 @@ Ballet ancle boots. 
 
 :::
 
-Ballet knee length boots 
+芭蕾及膝长靴。
 
 First of all if you're to wear ballet boots on a daily basis you should
 wear ballet ancle boots and shorter. They won't restrict your feet as

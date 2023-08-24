@@ -27,8 +27,7 @@ beginning. The combination of your imagination, gravity and an assistant
 is unbeatable and will help you improve your flexibility and strength
 much faster than you think. If you have weights of the kind used in
 aerobics or fitness here's the chance to make use of them, but if you
-don't have any weights have your assistant help gravity a bit by **very
-firmly** pulling you downwards and holding you there normally (!) for at
+don't have any weights have your assistant help gravity a bit by **very firmly** pulling you downwards and holding you there normally (!) for at
 least one minute, but preferably more and still letting you work on the
 balance. In the beginning this will be both difficult and very
 uncomfortable, but as they say "no pain no gain" and the problems will
@@ -154,8 +153,8 @@ this twice daily, in the morning and one in the evening. **If you initially begi
 ::: danger
 
 Image lost
-- \{ url = "/images/laura_guerriero1.jpg" width="193" height="281" \}
-- \{ url = "/images/laura_guerriero2.jpg" width="195" height="277" \}
+- \{ url="/images/laura_guerriero1.jpg" width="193" height="281" \}
+- \{ url="/images/laura_guerriero2.jpg" width="195" height="277" \}
 
 :::
 

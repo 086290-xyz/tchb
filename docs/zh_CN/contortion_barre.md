@@ -8,33 +8,12 @@
 
 :::
 
-## How to use the contortion barre
+## 如何使用柔术把杆
 
-The contortion barre is a tool that will make it make it possible for
-you to bend even more and improve your strength, but also improve your
-balance. The latter is especially thanks to that gravity makes most work
-for you. I was introduced to it by former contortionist Laura Guerriero
-and she learned me both how it's supposed to be made, but also how to
-use it. I use it both in my own training, but also when teaching others.
-As usual here you will have to use your imagination to find which
-exercises could be best done using the contortion barre, but most of the
-exercise in the schedule can be applied to the contortion barre. My
-recommendation is that you do them assisted and if possible with
-weights, but if you don't have someone to assist you you can use it
-too, even if it'll be more difficult to get into the positions in the
-beginning. The combination of your imagination, gravity and an assistant
-is unbeatable and will help you improve your flexibility and strength
-much faster than you think. If you have weights of the kind used in
-aerobics or fitness here's the chance to make use of them, but if you
-don't have any weights have your assistant help gravity a bit by **very
-firmly** pulling you downwards and holding you there normally (!) for at
-least one minute, but preferably more and still letting you work on the
-balance. In the beginning this will be both difficult and very
-uncomfortable, but as they say "no pain no gain" and the problems will
-disappear sooner than you think. Below are a few examples on how to use
-a contortion barre and some comments to them. However remember that they
-only are examples and that there are many more. Just use your
-imagination.
+柔术把杆是一种工具，可以让您更加灵活，增强力量，同时提高平衡能力。重力在帮助您的运动中起着重要作用。我是通过前柔术演员Laura Guerriero介绍给它的，她教会了我如何正确制作和使用。我在个人训练中经常使用它，也在教授他人时使用。
+虽然结合柔术把杆的锻练需要一些想象力，但大多数计划中的锻练都可以结合使用。我建议在进行这些锻练时寻求帮助，并在可能的情况下添加重量。如果没有伙伴帮忙，您仍然可以使用把杆，尽管起初可能更难以做出姿势。想象力、重力和助手的结合是强大的，可以大幅加速柔韧性和力量的提升。
+如果您有有氧运动或健身用的哑铃，可以利用它们。如果没有哑铃，您的助手可以通过**有力地**向下拉住您，并至少保持一分钟（最好更长时间），同时您可以继续平衡训练，来弥补缺乏阻力。虽然一开始会感到不适，但这种方法会带来显著的好处。正如俗语所说：“不经历风雨，怎么见彩虹”，不适感会比预期消失得更快。
+下面，我提供了一些使用柔术把杆的示例，并附有相关评论。请记住，这些仅仅是示例，还有许多其他可能性存在。发挥您的创造力吧。
 
 ::: danger
 
@@ -42,14 +21,7 @@ imagination.
 
 :::
 
-As you can see the contortion barre can be used with good success for
-training frontbends. In this position you will improve both your
-strength and flexibility and your goal is to get your head and shoulders
-between the legs and stay there. Then the assistant should take your
-hands and pull them downwards towards the floor and keep you in the
-position for at least 2 minutes, but preferably longer. Do at least 15
-repeats staying longer in the maximum flexible position for each repeat
-and <strong>increase the height to at least 1 meter during the process. <span class="underline">The legs must be strapped!</span></strong>
+正如您所看到的，柔术把杆可以非常成功地用于训练前屈。在这个姿势中，您将同时提高力量和灵活性，您的目标是将头和肩膀放在双腿之间并保持这个姿势。然后，助手应该拿住您的手并将它们朝地板方向拉低，并保持这个姿势至少 2 分钟，但最好更长。每次重复至少进行 15 次，每次都在最极限的姿势下停留更长时间，<strong>并在过程中逐渐增加高度，至少提高到 1 米。<span class="underline">必须要绑住双腿！</span></strong>
 
 ::: danger
 
@@ -57,23 +29,7 @@ and <strong>increase the height to at least 1 meter during the process. <span cl
 
 :::
 
-Also this position will improve both your strength and flexibility and
-initially you will need assistance to get into it, but after some time
-you shouldn't be assisted when getting into it. There are two ways of
-doing this exercise. The first one serves in increasing the especially
-the strength in your back muscles, but also your back flexibility. From
-a hanging straight position bend backwards bouncing towards being able
-to grab your legs, then release and bounce backwards repeating at least
-25 times. With time try to make the bounces slower so that you change to
-bending backwards instead of bouncing. The second way of doing the
-exercise is when you are in the position above. This time the exercise
-serves your flexibility. When hanging with your back bent backwards
-either have your assistant put his hands where your back is bent most
-and very firmly push downwards or one hand on your chest and the other
-on your thighs and push them towards eachother and downwards and in the
-maximum flexible position keep you in the position for at least 2
-minutes, but preferably longer. Do at least 15 repeats staying longer in
-the maximum flexible position for each repeat an <strong>increase the height to at least 1 meter during the process. <span class="underline">The legs must be strapped!</span></strong>
+另外，这个姿势也可以提高您的力量和柔韧性，起初您需要在进入姿势时得到帮助，但一段时间后，在进入姿势时就不再需要帮助。有两种方法可以进行这个锻炼。第一种方法可以增强您背部肌肉的力量，同时也可以增加背部的柔韧性。从悬挂的姿势开始，向后弯曲，反弹至能够抓住双腿，然后松开并向后反弹，至少重复 25 次。随着时间的推移，尝试使反弹变得更慢，这样您就会从反弹转变为主动的后弯。进行锻炼的第二种方法是在上述姿势中进行的。这次的锻炼主要有助于提高您的柔韧性。 当您的背部向后弯曲时，您可以选择以下方法之一：要么让助手将双手放在您背部弯曲的地方，并用力向下推，要么一只手放在胸前，另一只手放在大腿上，将它们向彼此和向下推，并在最大的柔韧性姿势下保持至少 2 分钟，但最好更长。每次至少重复 15 次，每次都在最大的柔韧性姿势下停留更长时间，<strong>并在过程中逐渐增加高度，至少提高到 1 米。<span class="underline">必须要绑住双腿！</span></strong>
 
 ::: danger
 
@@ -84,15 +40,7 @@ the maximum flexible position for each repeat an <strong>increase the height to 
 
 :::
 
-If you wish to improve the flexibility in the upper back a good method
-is to have both your hands and legs in the straps as shown above and
-just hang. It's much more comfortable than it looks. If possible put
-weights around your back helping gravity a bit more or have an assistant
-to either push your back downwards or swinging you. For the best result
-stay in the position for at least 15 minutes and preferably at least 30
-minutes. As you can see it's possible to do different variations of
-this position, but the most important is that you never get out of the
-backbend while doing different variations and <strong>increase the height during the process to at least 1 meter. <span class="underline">Remember to have the legs strapped at all times!</span></strong>
+如果您希望改善上背部的灵活性，一个很好的方法是像上面展示的那样，让双手和双腿都绑在带子上，然后保持悬挂状态。这比看起来要舒服得多。如果可能的话，可以在背部周围加上重物，以增强重力效果，或者让助手将您的背部向下推或摇摆。为了获得最佳效果，至少保持这个姿势 15 分钟，最好至少 30 分钟。正如您所看到的，可以进行不同的变化，但最重要的是在进行不同的变化时永远不要退出后弯，<strong>并在过程中逐渐增加高度，至少提高到 1 米。<span class="underline">必须要绑住双腿！</span></strong>
 
 ::: danger
 
@@ -104,22 +52,7 @@ backbend while doing different variations and <strong>increase the height during
 
 :::
 
-In this position you'll hand with one leg in the barre and let the
-other fall down backwards till you can reach it and then you pull it
-even further backwards. The gravity will help you much with the latter.
-Also have the assistant help you by putting one hand on your chest and
-the other on your thigh and push them towards eachother. When the most
-flexible position is achieved the assistant should move the hand from
-the thigh to the thigh of the leg you're hanging in and hold steadily
-there while at the same time very firmly pushing the leg bent back
-downward until it's not possible to go further and then hold you in the
-position for at least 2 minutes. If you're able to do oversplits the
-assistant can also hold you by the thigh of the leg your hanging in for
-steadyness and then in bouncing motions push downwards the thigh of the
-leg bent backwards. The result will be that you will swing from the
-position shown above into oversplits and back again using the hip as a
-lever. Repeat at least 15 times with each leg and if you do the swinging
-with the hips as lever swing at least 50 times with each leg. <strong>Increase the height during the process to at least 1 meter.  <span class="underline">Remember to have the legs strapped at all times!</span></strong>
+在这个姿势中，您将一条腿放在把杆上，让另一条腿向后自由下垂到力所能及的地方，然后再将它拉得更远向后。重力会在后者方面起到很大的帮助。同时，助手可以帮助您，一只手放在胸前，另一只手放在大腿上，将它们向彼此推。当达到极限时，助手应将手从大腿移到您悬挂的那条腿的大腿上，保持稳定，同时将弯曲向后的腿坚定地向下推，直到无法再继续，然后将您保持在该姿势中至少 2 分钟。如果您能够做到超级劈叉，助手还可以通过将手放在您悬挂的那条腿的大腿上来保持稳定，然后以反弹的方式向下推动弯曲向后的腿的大腿。结果将是，您将从上面所示的姿势中摆动到超级劈叉，然后再回到原来的位置，使用髋部作为杠杆。每条腿至少重复 15 次，如果使用髋部作为杠杆进行摆动，请每条腿至少摆动 50 次。<strong>并在过程中逐渐增加高度，至少提高到 1 米。<span class="underline">必须时刻要把双腿绑好！</span></strong>
 
 ::: danger
 
@@ -127,36 +60,14 @@ with the hips as lever swing at least 50 times with each leg. <strong>Increase t
 
 :::
 
-This position is warmly recommended for you when you can master
-backbends quite well. It requires that you practice at a height of at
-least 1 meter and will help you to the backfolds. Hang on the vertebrae
-you wish to fold as shown above, relax completely and have the assistant
-place one hand on your chest and the other on your thighs and push them
-towards eachother and downwards **very firmly** and hold you in the most
-flexible position for at least 2 minutes, but preferably for longer like
-5 minutes so that the back encircles the bar in the end. When hanging on
-your most flexible vertebrae the assistant should hold you in the
-position for at least 10-15 minutes and longer the more you advance.
-This can be very uncomfortable in the beginning and you will probably
-feel the vertebrae popping and hear clicking sounds, but this is nothing
-you should worry about. Just stay relaxed at all time. It's not
-dangerous and what is happening is that your back is moving into the
-most extreme backfold possible and then your vertebrae partially
-dislocate from the pressure of the bar applied to them. Therefor it's
-very important that you do every repeat on a different vertebrae! After
-a not too long time your back should produce a very tight backfold
-easily encircling the bar completely without you needing any assistance
-and you will be comfortable in the position! Do at least 15 repeats with
-a different vertebrae for each repeat and if you have the possibility do
-this twice daily, in the morning and one in the evening. **If you initially begin from a few cm above the floor increase the height to at least 1 meter during the process.**
+当您能够相当熟练地掌握后弯时，强烈建议您尝试这个姿势。这需要您在至少 1 米的高度上进行练习，将帮助您进行背部的折叠。像上面展示的那样，挂在您希望折叠的椎骨上，完全放松，并让助手一只手放在胸前，另一只手放在大腿上，将它们向彼此推并向下**非常用力地**推，将您保持在最柔韧的姿势中至少 2 分钟，但最好更长，比如 5 分钟，这样背部最终会完全围绕杆折叠。当您悬挂在最柔韧的椎骨上时，助手应至少将您保持在该姿势中 10-15 分钟，随着您的进步时间越长。这在开始时可能会非常不舒服，您可能会感觉椎骨会发出响声和点击声，但您不必担心。始终保持放松。这并不危险，发生的是您的背部正在进入可能的最极端的折叠状态，然后您的椎骨部分脱臼，因为杆施加在它们上面的压力。因此，非常重要的是您每次重复时都选择一个不同的椎骨！在不太长的时间内，您的背部应该可以轻松地产生非常紧致的背部折叠，完全围绕杆，无需任何帮助，您会在这个姿势中感到舒适！每次至少重复 15 次，每次都选择一个不同的椎骨，并且如果可能，一天两次，早上一次，晚上一次。**如果您最初是从离地面几厘米的地方开始的，请在过程中逐渐将高度提高至至少 1 米。**
 
 ::: danger
 
 图片丢失
-- \{ url = "/images/laura_guerriero1.jpg" width="193" height="281" \}
-- \{ url = "/images/laura_guerriero2.jpg" width="195" height="277" \}
+- \{ url="/images/laura_guerriero1.jpg" width="193" height="281" \}
+- \{ url="/images/laura_guerriero2.jpg" width="195" height="277" \}
 
 :::
 
-Here are two examples of using the contortion barre hanging from the
-hands while doing different exercises. <strong>It is <span class="underline">very important</span> that you hang at least 1 meter over the floor and strap your hands so that you don't fall down!</strong>
+以下是两个使用柔术把杆从双手悬挂时进行不同锻炼的示例。<strong><span class="underline">非常重要</span>的是，您至少要悬挂在离地面1米的高度，并将双手绑好，以防止您掉下来！</strong>

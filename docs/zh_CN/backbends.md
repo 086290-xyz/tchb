@@ -1,17 +1,8 @@
 # 后弯
 
-Even if you've already read about backs and backbending I would like to
-say some important things (and reminders) if you're going to begin with
-backbending.
+即使您已经阅读过关于背部和背部伸展的内容，如果您打算开始进行背部伸展，我仍然想说一些重要的事情（以及提醒）。
 
-First of all when you're going to start bending your back backwards you
-will feel tension. Much more tension than you've ever felt before in
-your back. It might even feel like if it's going to break. Don't
-worry, it won't! It can also be painful in the beginning, but again
-that's only in the beginning of every exercise and it will disappear
-after a week or two. Just continue doing the exercises and don't be
-terrified. Your back isn't used to bend backwards this way, but as you
-can see it's much stronger than you think. 
+首先，当您开始向后弯曲背部时，您会感到紧张。比您以前在背部感受到的紧张要多得多。甚至可能感觉好像会断裂一样。别担心，不会的！一开始可能会感到疼痛，但这只会在每次练习的开始阶段出现，而且会在一两周后消失。继续做练习，不要害怕。您的背部不习惯以这种方式向后弯曲，但正如您所看到的，它比您想象的要稳定得多。
 
 <div class="img-group">
 
@@ -22,18 +13,7 @@ can see it's much stronger than you think. 
 
 </div>
 
-This is something some people doing these exercises might feel and have
-felt at every stage they've continued. This applies especially to those
-that do assisted stretches. When doing assisted backstretches there's a
-difference to other assisted stretches. The assistant should push you
-firmly into the position, hold for 15 seconds, let go a bit, pull in a
-bit further, hold for 30 seconds and continue to do like this until all
-repeats are done. In the last repeat the assistant should hold you for
-as long as you can stand. What is important is that when holding you can
-and should move, maybe twist if possible, since this will increase the
-stretch, but also loosen up your vertebrae. This will be difficult in
-the beginning, but you'll both see and feel the results and soon this
-will be a quite comfortable way of exercising.
+这是一些进行这些练习的人可能会在每个阶段都感受到和经历过的感觉。这尤其适用于那些进行辅助伸展的人。在进行辅助背部伸展时，与其他辅助伸展有所不同。助手应该坚定地将您推到要做的姿势上，保持 15 秒，稍微松开一点，再稍微拉伸更远一些，保持 30 秒，然后继续这样做，直到所有重复都完成。在最后一个重复中，助手应该将您保持到您能够坚持住的最长时间。重要的是，在保持姿势的时候，您可以并且应该移动，如果可能的话甚至可以扭动，因为这会增加伸展，同时也可以放松您的椎骨。一开始会很困难，但您会看到并感受到结果，很快这将成为一种相当舒适的锻炼方式。
 
 <div class="img-group">
 
@@ -42,23 +22,7 @@ will be a quite comfortable way of exercising.
 
 </div>
 
-As you can see the assisted stretches can be done in many more different
-ways than what you'll see here. If you see a possibility to vary the
-assisted stretches do so. The only limit is your own imagination.
-Especially those that suffer from hypermobility should use assisted
-backstretches much to achieve ultimate flexibility in the back, but also
-to get the stretches more stable. The assistant also prevents you from
-stopping at an early stage and it's important that you don't do that.
-There's also a reason why yogis, contortionists, dancers and gymnasts
-do assisted stretches and even if it might look extreme when not
-assisted don't give up. There's a reason. It's effective and not
-dangerous. If you train together with a partner of a different gender,
-and you wish to be at the same lever at all times the male partner
-should be assisted. Then hold the stretches longer and to the same level
-as the female partner. Even if it might be quite uncomfortable it's
-only in the beginning. Don't be scared. It's normal. Instead see the
-benefits. You'll be doing backbends sooner than you'll think it's
-possible. This way you're prepared for it. 
+正如您所看到的，辅助伸展可以通过许多不同的方式进行，远远不止您在这里看到的。如果您看到一种可以改变辅助伸展方式的可能性，那就去尝试。唯一的限制是您自己的想象力。特别是那些患有过度活动性的人应该经常使用辅助背部伸展，以实现背部的极限柔韧性，同时使伸展更加稳定。助手还可以防止您在早期停止练习，这一点非常重要，您不应该这样做。瑜伽者、柔术演员、舞者和体操运动员之所以进行辅助伸展，即使在没有助手的情况下可能看起来很极端，也有其原因。不要放弃，这种方法既有效又安全。如果您与异性伴侣一起训练，并且希望始终保持相同的水平，男性伴侣应该接受辅助。然后保持伸展的时间更长，达到与女性伴侣相同的水平。即使可能会感到相当不舒服，这只会在开始阶段出现。不要害怕，这是正常的。相反，看到其中的好处。您会比您认为的更快地完成后弯。这样您就为此做好了准备。
 
 <div class="img-group">
 
